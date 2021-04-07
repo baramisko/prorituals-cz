@@ -1,6 +1,11 @@
 ---
 label: Kontakt
 hide_body: false
-fields: []
+fields:
+- name: Kontakt
+  type: text
+  config:
+    required: false
+  label: Kontakt
 pages:
 - Kontakt.md

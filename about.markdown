@@ -1,6 +1,8 @@
 ---
-layout: O projektu
-title: About
-permalink: "/about/"
+layout: page
+title: Kontakt 
+in_menu: true
 
 ---
+
+Kontakt

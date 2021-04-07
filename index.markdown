@@ -1,8 +1,7 @@
 ---
 layout: page
-title: Nabídka
+title: Vítej
 in_menu: true
 
 ---
-
 Úvodní stránka

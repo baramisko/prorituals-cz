@@ -1,8 +1,7 @@
 ---
 layout: page
-title: Kontakt 
+title: Rituálky
 in_menu: true
 
 ---
-
-Kontakt
+      _S láskou dělané, na míru sestavené, ve světle očištěné_

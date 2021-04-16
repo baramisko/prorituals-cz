@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Rituálky
+title: Rituální sady
 in_menu: true
 
 ---

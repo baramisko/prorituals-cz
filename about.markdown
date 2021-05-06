@@ -20,7 +20,7 @@ _Ke každému boxu je uvnitř klíč, který vede do zákoutí vaší mysli skrz
 
 **_Sady jsou k dispozici vždy po pár kusech, počet je vždy napsán u boxu._** 
 
-**_Nejsme E-shop, proto je třeba napsat o box, který Vás zaujal a zpětně dostanete informace o platbě a kam Vám můžeme Váš rituál poslat apod._**
+**_Nejsme E-shop, proto je třeba napsat o rituální sadu, která Vás zaujala a zpětně dostanete informace o platbě a kam Vám můžeme Váš rituál poslat apod._**
 
 **_Kontakt - mail - bara.nyja@seznam.cz_**
 

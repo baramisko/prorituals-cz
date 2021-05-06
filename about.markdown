@@ -24,4 +24,4 @@ _Ke každému boxu je uvnitř klíč, který vede do zákoutí vaší mysli skrz
 
 **_Kontakt - mail - bara.nyja@seznam.cz_**
 
-Dostupné rituální sady :
+**_Dostupné rituální sady :_**

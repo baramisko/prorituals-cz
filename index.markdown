@@ -13,3 +13,5 @@ in_menu: true
 Jednoduše
 
 Jednaduše
+
+Nevíte -li si rady, neváhejte kontaktovat mailem, poradíme rádi.

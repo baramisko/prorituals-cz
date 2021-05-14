@@ -16,7 +16,7 @@ _Šperky jsou vibračně nalazeny přímo pro daný boxík._
 
 _Kameny rovněž._
 
-_Ke každému boxu je uvnitř klíč, který vede do zákoutí vaší mysli skrze meditaci s odkazem._
+_Ke každému boxu je uvnitř klíč, který vede do zákoutí vaší mysli skrze meditaci s odkazem, kterou Vás provede můj hlas._
 
 **_Sady jsou k dispozici vždy po pár kusech, počet je vždy napsán u boxu._**
 

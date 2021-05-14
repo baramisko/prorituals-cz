@@ -18,9 +18,11 @@ _Kameny rovněž._
 
 _Ke každému boxu je uvnitř klíč, který vede do zákoutí vaší mysli skrze meditaci s odkazem._
 
-**_Sady jsou k dispozici vždy po pár kusech, počet je vždy napsán u boxu._** 
+**_Sady jsou k dispozici vždy po pár kusech, počet je vždy napsán u boxu._**
 
 **_Nejsme E-shop, proto je třeba napsat o rituální sadu, která Vás zaujala a zpětně dostanete informace o platbě a kam Vám můžeme Váš rituál poslat apod._**
+
+V mailu se rovněž domluvíme na záměru vaší osobní vonné kompozice , pokud budete chtít, pokud je to dárek, necháte to na mne, udělám vše proto, aby byla nacítěná.
 
 **_Kontakt - mail - bara.nyja@seznam.cz_**
 

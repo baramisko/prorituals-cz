@@ -6,7 +6,7 @@ in_menu: true
 ---
 _S láskou dělané, na míru sestavené, ve světle očištěné_
 
-_Všechny magické boxy, které zde naleznete, jsou ručně dělané, v Beskydech v chaloupce._
+_Všechny spirituální boxy a jejich obsah, které zde naleznete, jsou ručně dělané, v Beskydech v chaloupce._
 
 _Obsahují bylinné kompozice, které jsme vybírali pečlivě, ekologické a ekonomické, vlastní výrobky nebo místní , i rodinné._
 

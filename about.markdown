@@ -36,4 +36,6 @@ V mailu se rovněž domluvíme na záměru vaší osobní vonné kompozice , pok
 
 **_Odloučení se, odpuštění, propuštění_** _- při rozloučení se s bytostí, která opustila náš svět - smrt, rozchod,rozvod, potrat..._
 
-_Kupujete to , co je na obrázku vždy podle dané fotografie a obsahu_
+_Kupujete to , co je na obrázku vždy podle dané fotografie a obsahu._
+
+_Cena se liší podle hmotnosti a velikosti minerálu a jeho původu_

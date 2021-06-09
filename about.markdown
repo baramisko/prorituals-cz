@@ -6,23 +6,23 @@ in_menu: true
 ---
 _S láskou dělané, na míru sestavené, ve světle očištěné_
 
-_Všechny spirituální boxy a jejich obsah, které zde naleznete, jsou ručně dělané, v Beskydech v chaloupce._
+_Všechny spirituální sady, které zde naleznete, jsou ručně dělané, v Beskydech v chaloupce._
 
 _Obsahují bylinné kompozice, které jsme vybírali pečlivě, ekologické a ekonomické, vlastní výrobky nebo místní , i rodinné._
 
 _Vše je šetrné k pokožce, přírodě i k celému tělu._
 
-_Šperky jsou vibračně nalazeny přímo pro daný boxík._
+_Šperky jsou vibračně nalazeny přímo pro danou rituální sadu._
 
 _Kameny rovněž._
 
-_Ke každému boxu je uvnitř klíč, který vede do zákoutí vaší mysli skrze meditaci s odkazem, kterou Vás provede můj hlas._
+ _Uvnitř najdete klíč, který vede do zákoutí vaší mysli skrze meditaci s odkazem, kterou Vás provede můj hlas a mystická hudba nejen z přírody z lesa ale také z dálného východu._
 
-**_Sady jsou k dispozici vždy po pár kusech, počet je vždy napsán u boxu._**
+**_Sady jsou k dispozici vždy po pár kusech, počet je vždy napsán u rituální sady._**
 
 **_Nejsme E-shop, proto je třeba napsat o rituální sadu, která Vás zaujala a zpětně dostanete informace o platbě a kam Vám můžeme Váš rituál poslat apod._**
 
-V mailu se rovněž domluvíme na záměru vaší osobní vonné kompozice , pokud budete chtít, pokud je to dárek, necháte to na mne, udělám vše proto, aby byla nacítěná.
+V mailu se rovněž domluvíme na záměru vaší osobní vonné kompozice , pokud budete chtít, pokud je to dárek, necháte to na mne, udělám vše proto, aby byla nacítěná. Pracuji hlavně s aromaterapií, která dokáže vstoupit do našich buněk skrze své vůně, nepřeplácávám vůně, ale věřím, že se rozvoní právě v té chvíli , kdy je třeba, po zkušenostech mých i mých přátel, kteří byli dobrovolní testeři.
 
 **_Kontakt - mail - bara.nyja@seznam.cz_**
 
@@ -36,6 +36,12 @@ V mailu se rovněž domluvíme na záměru vaší osobní vonné kompozice , pok
 
 **_Odloučení se, odpuštění, propuštění_** _- při rozloučení se s bytostí, která opustila náš svět - smrt, rozchod,rozvod, potrat..._
 
+**Lesaně** _vhodné jako dárek pro lesní žínku, která nutně nemusí bydlet v lese_
+
 _Kupujete to , co je na obrázku vždy podle dané fotografie a obsahu._
 
-_Cena se liší podle hmotnosti a velikosti minerálu a jeho původu_
+_Cena se liší podle hmotnosti a velikosti minerálu a jeho původu, podle náročnosti vonné kompozice._
+
+_Příběhem k těmto rituálním sadám ,je dlouhá cesta mojí duši do zakotvení se toho, čemu opravdu rozumím, co funguje a já toto poslání mohu šířit dál. Vonné kompozice, oleje, svíce vyrábím já osobně. Můžete se více dočíst i zde www.baranyja.eu ._
+
+Mám Vás v srdci

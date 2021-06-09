@@ -38,6 +38,8 @@ V mailu se rovněž domluvíme na záměru vaší osobní vonné kompozice , pok
 
 **Lesaně** _vhodné jako dárek pro lesní žínku, která nutně nemusí bydlet v lese_
 
+**Pro tři čaroDějky** _sada určená třem ženám či dívkám pro svá kouzla a rituály_
+
 _Kupujete to , co je na obrázku vždy podle dané fotografie a obsahu._
 
 _Cena se liší podle hmotnosti a velikosti minerálu a jeho původu, podle náročnosti vonné kompozice._

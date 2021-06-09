@@ -47,3 +47,5 @@ _Cena se liší podle hmotnosti a velikosti minerálu a jeho původu, podle nár
 _Příběhem k těmto rituálním sadám ,je dlouhá cesta mojí duši do zakotvení se toho, čemu opravdu rozumím, co funguje a já toto poslání mohu šířit dál. Vonné kompozice, oleje, svíce vyrábím já osobně. Můžete se více dočíst i zde www.baranyja.eu ._
 
 Mám Vás v srdci
+
+Nyja

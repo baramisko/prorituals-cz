@@ -42,7 +42,7 @@ _V mailu se rovněž domluvíme na záměru vaší osobní vonné kompozice , po
 
 **Hojnost**
 
-_Kupujete to , co je na obrázku vždy podle dané fotografie a obsahu._
+_Kupujete to , co je na obrázku vždy podle dané fotografie a obsahu. Vždy podle roční doby, situace na naší planetě a v zemi, podle dostupnosti minerálů a hlavně intuice :)_
 
 _Cena se liší podle hmotnosti a velikosti minerálu a jeho původu, podle náročnosti vonné kompozice. Nekupujete tudíž načančanou bedýnku, ale obsah a svůj zážitek._ 
 

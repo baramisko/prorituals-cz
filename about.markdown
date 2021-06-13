@@ -40,6 +40,8 @@ _V mailu se rovněž domluvíme na záměru vaší osobní vonné kompozice , po
 
 **Pro tři čaroDějky** _sada určená třem ženám či dívkám pro svá kouzla a rituály_
 
+**Hojnost**
+
 _Kupujete to , co je na obrázku vždy podle dané fotografie a obsahu._
 
 _Cena se liší podle hmotnosti a velikosti minerálu a jeho původu, podle náročnosti vonné kompozice._

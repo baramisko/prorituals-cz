@@ -46,8 +46,10 @@ _Kupujete to , co je na obrázku vždy podle dané fotografie a obsahu._
 
 _Cena se liší podle hmotnosti a velikosti minerálu a jeho původu, podle náročnosti vonné kompozice. Nekupujete tudíž načančanou bedýnku, ale obsah a svůj zážitek._ 
 
-_Příběhem k těmto rituálním sadám ,je dlouhá cesta mojí duši do zakotvení se toho, čemu opravdu rozumím, co funguje a já toto poslání mohu šířit dál. Vonné kompozice, oleje, svíce vyrábím já osobně. Můžete se více dočíst i zde www.baranyja.eu ._
+_Příběhem k těmto rituálním sadám ,je dlouhá cesta mojí duši do zakotvení se toho, čemu opravdu rozumím, co funguje a já toto poslání mohu šířit dál. Vonné kompozice, oleje, svíce vyrábím já osobně._
 
-Mám Vás v srdci
+ _Můžete se více dočíst i zde www.baranyja.eu ._
 
-Nyja
+**_Mám Vás v srdci_**
+
+**_Nyja_**

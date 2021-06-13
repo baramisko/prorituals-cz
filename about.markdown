@@ -4,25 +4,25 @@ title: Rituální sady
 in_menu: true
 
 ---
-_S láskou dělané, na míru sestavené, ve světle očištěné_
+_S láskou sestavené..._
 
 _Všechny spirituální sady, které zde naleznete, jsou ručně dělané, v Beskydech v chaloupce._
 
-_Obsahují bylinné kompozice, které jsme vybírali pečlivě, ekologické a ekonomické, vlastní výrobky nebo místní , i rodinné._
+_Obsahují bylinné kompozice, které jsme vybírali pečlivě, ekologické a ekonomické, vlastní výrobky nebo místní , i rodinné, tak aby byly co nejvíce Fair trade a také od malých farem s podporou rozvoje našich lokalit a dodavatelů._
 
 _Vše je šetrné k pokožce, přírodě i k celému tělu._
 
 _Šperky jsou vibračně nalazeny přímo pro danou rituální sadu._
 
-_Kameny rovněž._
+_Kameny rovněž, které jsou pečlivě vybírány se spolupráci se Světem Kamenů v Rožnově pod Radhoštěm._
 
- _Uvnitř najdete klíč, který vede do zákoutí vaší mysli skrze meditaci s odkazem, kterou Vás provede můj hlas a mystická hudba nejen z přírody z lesa ale také z dálného východu._
+_Uvnitř najdete klíč, který vede do zákoutí vaší mysli skrze meditaci s odkazem, kterou Vás provede můj hlas a mystická hudba nejen z přírody z lesa ale také z dálného východu._
 
 **_Sady jsou k dispozici vždy po pár kusech, počet je vždy napsán u rituální sady._**
 
 **_Nejsme E-shop, proto je třeba napsat o rituální sadu, která Vás zaujala a zpětně dostanete informace o platbě a kam Vám můžeme Váš rituál poslat apod._**
 
-V mailu se rovněž domluvíme na záměru vaší osobní vonné kompozice , pokud budete chtít, pokud je to dárek, necháte to na mne, udělám vše proto, aby byla nacítěná. Pracuji hlavně s aromaterapií, která dokáže vstoupit do našich buněk skrze své vůně, nepřeplácávám vůně, ale věřím, že se rozvoní právě v té chvíli , kdy je třeba, po zkušenostech mých i mých přátel, kteří byli dobrovolní testeři.
+_V mailu se rovněž domluvíme na záměru vaší osobní vonné kompozice , pokud budete chtít, pokud je to dárek, necháte to na mne, udělám vše proto, aby byla nacítěná. Pracuji hlavně s aromaterapií, která dokáže vstoupit do našich buněk skrze své vůně, nepřeplácávám vůně, ale věřím, že se rozvoní právě v té chvíli , kdy je třeba, po zkušenostech mých i mých přátel, kteří byli dobrovolní testeři._
 
 **_Kontakt - mail - bara.nyja@seznam.cz_**
 

@@ -14,7 +14,7 @@ _Vše je šetrné k pokožce, přírodě i k celému tělu._
 
 _Šperky jsou vibračně nalazeny přímo pro danou rituální sadu._
 
-_Kameny rovněž, které jsou pečlivě vybírány se spolupráci se Světem Kamenů v Rožnově pod Radhoštěm._
+_Kameny rovněž, které jsou pečlivě vybírány, aby nebyly překupovány z podvodných obchodů._
 
 _Uvnitř najdete klíč, který vede do zákoutí vaší mysli skrze meditaci s odkazem, kterou Vás provede můj hlas a mystická hudba nejen z přírody z lesa ale také z dálného východu._
 
@@ -44,11 +44,11 @@ _V mailu se rovněž domluvíme na záměru vaší osobní vonné kompozice , po
 
 _Kupujete to , co je na obrázku vždy podle dané fotografie a obsahu. Vždy podle roční doby, situace na naší planetě a v zemi, podle dostupnosti minerálů a hlavně intuice :)_
 
-_Cena se liší podle hmotnosti a velikosti minerálu a jeho původu, podle náročnosti vonné kompozice. Nekupujete tudíž načančanou bedýnku, ale obsah a svůj zážitek._ 
+_Cena se liší podle hmotnosti a velikosti minerálu a jeho původu, podle náročnosti vonné kompozice. Nekupujete tudíž načančanou bedýnku, ale obsah a svůj zážitek._
 
 _Příběhem k těmto rituálním sadám ,je dlouhá cesta mojí duši do zakotvení se toho, čemu opravdu rozumím, co funguje a já toto poslání mohu šířit dál. Vonné kompozice, oleje, svíce vyrábím já osobně._
 
- _Můžete se více dočíst i zde www.baranyja.eu ._
+_Můžete se více dočíst i zde www.baranyja.eu ._
 
 **_Mám Vás v srdci_**
 

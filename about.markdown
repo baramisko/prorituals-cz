@@ -22,7 +22,9 @@ _Uvnitř najdete klíč, který vede do zákoutí vaší mysli skrz meditace s o
 
 **_Nejsme E-shop, proto je třeba napsat o rituální sadu, která Vás zaujala a zpětně dostanete informace o platbě a kam Vám můžeme Váš rituál poslat apod._**
 
-_V mailu se rovněž domluvíme na záměru vaší osobní vonné kompozice , pokud budete chtít, pokud je to dárek, necháte to na mne, udělám vše proto, aby byla nacítěná. Pracuji hlavně s aromaterapií, která dokáže vstoupit do našich buněk skrze své vůně, nepřeplácávám vůně, ale věřím, že se rozvoní právě v té chvíli , kdy je třeba, po zkušenostech mých i mých přátel, kteří byli dobrovolní testeři._
+_V mailu se rovněž domluvíme na záměru vaší osobní vonné kompozice , pokud budete chtít, pokud je to dárek, necháte to na mne, udělám vše proto, aby byla nacítěná._ 
+
+_Pracuji hlavně s aromaterapií, která dokáže vstoupit do našich buněk skrze své vůně, nepřeplácávám vůně, ale věřím, že se rozvoní právě v té chvíli , kdy je třeba, po zkušenostech mých i mých přátel, kteří byli dobrovolní testeři._
 
 **_Kontakt - mail - bara.nyja@seznam.cz_**
 
@@ -46,10 +48,18 @@ _Kupujete to , co je na obrázku vždy podle dané fotografie a obsahu. Vždy po
 
 _Cena se liší podle hmotnosti a velikosti minerálu a jeho původu, podle náročnosti vonné kompozice. Nekupujete tudíž načančanou bedýnku, ale obsah a svůj zážitek._
 
-_Příběhem k těmto rituálním sadám ,je dlouhá cesta mojí duši do zakotvení se toho, čemu opravdu rozumím, co funguje a já toto poslání mohu šířit dál. Vonné kompozice, oleje, svíce vyrábím já osobně._
+_Příběhem k těmto rituálním sadám ,je dlouhá cesta mojí duši do zakotvení se toho, čemu opravdu rozumím, co funguje a já toto poslání mohu šířit dál._ 
 
 _Můžete se více dočíst i zde www.baranyja.eu ._
 
 **_Mám Vás v srdci_**
 
 **_Nyja_**
+
+**Vonné kompozice obsah:** panenský , hypoalergenní olivový olej, z řeckého ostrova pochází z kláštera AGIA TRIADA (Svatá Trojice) na Krétě. K tomuto klášteru náleží rozlehlé olivové háje, o které se mniši sami starají a olivy pro lisování tohoto oleje pečlivě vybírají, což mu dodává tu nejvyšší možnou kvalitu, jemnost a nenahraditelnou chuť. Poté se olej v klášteře lisuje tradičním způsobem. Olivy pro výrobu tohoto exkluzivního oleje jsou jednodruhové, což je naprosto unikátní. Je to velmi podstatné měřítko kvality. Olivy, z nichž se tento olej lisuje, pocházejí pouze z olivových hájů přilehlých ke klášteru Agia Triada. Vzhledem k této jedinečnosti získal ochrannou známku I.G.P. Jedná se o chráněné zeměpisné označení, které se uděluje výrobkům chráněným nařízením Rady (ES) č. 509/2006. Olej se vyrábí ve velmi malém množství.
+
+Bio éterické oleje značky Saloos, Nobilis Thilia nebo Florihanna, nosič vůně v nejvyšší kvalitě.
+
+Sůl obsahuje - různé byliny, napsány na lahvičce, mořskou sůl sbíranou z povrchu hladiny, která je blahodárná na pokožku, mysl a celé tělo.
+
+Balík a jeho obsah zabalen do vlnité dřeviny, která je buď zcela přírodní nebo i obarvená, lze použít jako dekoraci nebo v bezpečném množství a samozřejmě ohleduplně ,jako podpal pod ohniště. Prosím na vlastní odpovědnost. :)

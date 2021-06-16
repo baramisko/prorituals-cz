@@ -44,6 +44,8 @@ _Pracuji hlavně s aromaterapií, která dokáže vstoupit do našich buněk skr
 
 **Hojnost**
 
+**Dvojplamen** pro muže a ženu
+
 _Kupujete to , co je na obrázku vždy podle dané fotografie a obsahu. Vždy podle roční doby, situace na naší planetě a v zemi, podle dostupnosti minerálů a hlavně intuice :)_
 
 _Cena se liší podle hmotnosti a velikosti minerálu a jeho původu, podle náročnosti vonné kompozice. Nekupujete tudíž načančanou bedýnku, ale obsah a svůj zážitek._

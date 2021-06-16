@@ -4,19 +4,19 @@ title: Rituální sady
 in_menu: true
 
 ---
-_S láskou sestavené..._
+_S láskou sestavené ..._
 
-_Všechny spirituální sady, které zde naleznete, jsou ručně dělané, v Beskydech v chaloupce._
+_Všechny spirituální sady, které zde najdete, jsou ručně dělané, v Beskydech v chaloupcích._
 
-_Obsahují bylinné kompozice, které jsme vybírali pečlivě, ekologické a ekonomické, vlastní výrobky nebo místní , i rodinné, tak aby byly co nejvíce Fair trade a také od malých farem s podporou rozvoje našich lokalit a dodavatelů._
+_Obsahují bylinné kompozice, které jsme vybírali pečlivě, ekologické a ekonomické, vlastní výrobky nebo místní, i rodinné, tak aby byly co nejdříve Fair trade a podporovaly rozvoj našich lokalit a dodavatelů._
 
 _Vše je šetrné k pokožce, přírodě i k celému tělu._
 
 _Šperky jsou vibračně nalazeny přímo pro danou rituální sadu._
 
-_Kameny rovněž, které jsou pečlivě vybírány, aby nebyly překupovány z podvodných obchodů._
+_Kameny také, které pečlivě vybírám, aby nebyly překupovány z podvodných obchodů._
 
-_Uvnitř najdete klíč, který vede do zákoutí vaší mysli skrze meditaci s odkazem, kterou Vás provede můj hlas a mystická hudba nejen z přírody z lesa ale také z dálného východu._
+_Uvnitř najdete klíč, který vede do zákoutí vaší mysli skrz meditace s odkazem, kterou Vás provede můj hlas a mystická hudba nejen z přírody z lesa, ale také z dálného východu._
 
 **_Sady jsou k dispozici vždy po pár kusech, počet je vždy napsán u rituální sady._**
 

@@ -6,7 +6,7 @@ in_menu: true
 ---
 _S láskou sestavené ..._
 
-_Všechny spirituální sady, které zde najdete, jsou ručně dělané, v Beskydech v chaloupcích._
+_Všechny spirituální sady, které zde najdete, jsou ručně dělané, v Beskydech v chaloupce._
 
 _Obsahují bylinné kompozice, které jsme vybírali pečlivě, ekologické a ekonomické, vlastní výrobky nebo místní, i rodinné, tak aby byly co nejdříve Fair trade a podporovaly rozvoj našich lokalit a dodavatelů._
 
@@ -22,7 +22,7 @@ _Uvnitř najdete klíč, který vede do zákoutí vaší mysli skrz meditace s o
 
 **_Nejsme E-shop, proto je třeba napsat o rituální sadu, která Vás zaujala a zpětně dostanete informace o platbě a kam Vám můžeme Váš rituál poslat apod._**
 
-_V mailu se rovněž domluvíme na záměru vaší osobní vonné kompozice , pokud budete chtít, pokud je to dárek, necháte to na mne, udělám vše proto, aby byla nacítěná._ 
+_V mailu se rovněž domluvíme na záměru vaší osobní vonné kompozice , pokud budete chtít, pokud je to dárek, necháte to na mne, udělám vše proto, aby byla nacítěná._
 
 _Pracuji hlavně s aromaterapií, která dokáže vstoupit do našich buněk skrze své vůně, nepřeplácávám vůně, ale věřím, že se rozvoní právě v té chvíli , kdy je třeba, po zkušenostech mých i mých přátel, kteří byli dobrovolní testeři._
 
@@ -50,7 +50,7 @@ _Kupujete to , co je na obrázku vždy podle dané fotografie a obsahu. Vždy po
 
 _Cena se liší podle hmotnosti a velikosti minerálu a jeho původu, podle náročnosti vonné kompozice. Nekupujete tudíž načančanou bedýnku, ale obsah a svůj zážitek._
 
-_Příběhem k těmto rituálním sadám ,je dlouhá cesta mojí duši do zakotvení se toho, čemu opravdu rozumím, co funguje a já toto poslání mohu šířit dál._ 
+_Příběhem k těmto rituálním sadám ,je dlouhá cesta mojí duši do zakotvení se toho, čemu opravdu rozumím, co funguje a já toto poslání mohu šířit dál._
 
 _Můžete se více dočíst i zde www.baranyja.eu ._
 

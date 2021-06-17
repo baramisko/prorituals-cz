@@ -69,3 +69,5 @@ _Můžete se více dočíst i zde www.baranyja.eu ._
 **Balík a jeho obsah** zabalen do vlnité dřeviny, která je buď zcela přírodní nebo i obarvená, lze použít jako dekoraci nebo v bezpečném množství a samozřejmě ohleduplně ,jako podpal pod ohniště. Prosím na vlastní odpovědnost. :)
 
 Drahé minerály jsou pod dohledem dovozu EU, většina z nich pochází z mystických míst Brazílie, Peru, Balkánu apod.
+
+**_V případě zájmu o sestavení na míru , mne kontaktujte alespoň měsíc předem - svatba, předporodní rituál, narozeniny, odjezd na delší cestu, ženský kruh, mužský kruh..._**

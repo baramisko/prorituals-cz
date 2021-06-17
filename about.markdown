@@ -42,9 +42,11 @@ _Pracuji hlavně s aromaterapií, která dokáže vstoupit do našich buněk skr
 
 **Pro tři čaroDějky** _sada určená třem ženám či dívkám pro svá kouzla a rituály_
 
-**Hojnost**
+**Hojnost,** _rituál pro prosperitu v jakékoli životní oblasti_
 
-**Dvojplamen** pro muže a ženu
+**Dvojplamen** _pro muže a ženu._
+
+**_Vše co koupíte, můžete koupit někomu z lásky, kdo by ocenil a byl rád, za rituál, za nádhernou sadu, za pomoc na jeho cestě. Máte kamarádku, která si neví rady se vztahem? Nebo dva přátelé, které čeká svatba? Silnou ženu, která ztrácí půdu pod nohama? Pro ně jsou vhodné naše rituálky._**
 
 _Kupujete to , co je na obrázku vždy podle dané fotografie a obsahu. Vždy podle roční doby, situace na naší planetě a v zemi, podle dostupnosti minerálů a hlavně intuice :)_
 

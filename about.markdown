@@ -16,7 +16,7 @@ _Šperky jsou vibračně nalazeny přímo pro danou rituální sadu._
 
 _Kameny také, které pečlivě vybírám, aby nebyly překupovány z podvodných obchodů._
 
-_Uvnitř najdete klíč, který vede do zákoutí vaší mysli skrz meditace s odkazem, kterou Vás provede můj hlas a mystická hudba nejen z přírody z lesa, ale také z dálného východu._
+_Přes objednání, dostanete odkaz na hlubinnou meditaci._
 
 **_Sady jsou k dispozici vždy po pár kusech, počet je vždy napsán u rituální sady._**
 

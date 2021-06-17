@@ -12,6 +12,8 @@ in_menu: true
 
 ...Pro všechny, kteří si chtějí vytvořit vlastní kruh a neví ,kde začít, jak začít, jak se vyrovnat se ztrátou, nebo posílit sebevědomí, jak usnadnit dceři první menstruaci, pro nastávající maminky, nevěsty, silné muže...
 
+...přála bych si, aby se rituály vrátily zpátky do každé domácnosti , ke každé duši a aby byly součástí našich běžných, neobyčejných příběhů života...
+
 Jednoduše
 
 Jednaduše

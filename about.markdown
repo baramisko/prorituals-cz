@@ -26,6 +26,8 @@ _V mailu se rovněž domluvíme na záměru vaší osobní vonné kompozice , po
 
 _Pracuji hlavně s aromaterapií, která dokáže vstoupit do našich buněk skrze své vůně, nepřeplácávám vůně, ale věřím, že se rozvoní právě v té chvíli , kdy je třeba, po zkušenostech mých i mých přátel, kteří byli dobrovolní testeři._
 
+**_Pokud kupujete sadu jako dárek, obsah je vždy napsán i vlastnoručním dopisem uvnitř, takže majitel vždy bude vědět, co k němu připutovalo._**
+
 **_Kontakt - mail - bara.nyja@seznam.cz_**
 
 **_Dostupné rituální sady :_**

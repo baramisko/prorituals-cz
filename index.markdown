@@ -28,4 +28,8 @@ _Jmenuji se Bára, jsem šťastně vdaná za Tomáše , který má dvě dcery, �
 
 _Jsem lektorka, učitelka a stálým žákem jógy, masérka, bylinářka, olejíčkářka, proradní ( pro rady ) mladá bába, mastičkářka, duchařiny, rituály, kořeny, šamanství, výklad karet, napojení se přes mistry..._
 
-_a toto vše jsem chtěla dát dohromady pro všechny_ 
+_a toto vše jsem chtěla dát dohromady pro všechny_
+
+![](/uploads/mm.jpg)
+
+_Jsem na Instagramu , můj profil od_kocici a rituální profil pro.rituals_

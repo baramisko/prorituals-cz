@@ -30,6 +30,6 @@ _Jsem lektorka, učitelka a stálým žákem jógy, masérka, bylinářka, olej�
 
 _a toto vše jsem chtěla dát dohromady pro všechny_
 
-![](/uploads/mm.jpg)
-
 _Jsem na Instagramu , můj profil od_kocici a rituální profil pro.rituals_
+
+![](/uploads/img_20210429_151733-1.jpg)

@@ -26,4 +26,6 @@ _Něco málo o mne_
 
 _Jmenuji se Bára, jsem šťastně vdaná za Tomáše , který má dvě dcery, žijeme v chaloupce v Beskydech na skoro samotě v lese u potoka, osvojily si nás tři kočky, spousta netopýrů, rostlin, víl a elfů :) Vystudovala jsem Psychologii, stejně jako můj manžel a oba dva se věnujeme úplně něčemu jinému, jak už to v životě bývá. Pracovala jsem v instituci se závislými lidmi a stačilo._
 
-_Jsem lektorka, učitelka a stálým žákem jógy, masérka, bylinářka, olejíčkářka, proradní ( pro rady ) mladá bába, mastičkářka, duchařiny, rituály, kořeny, šamanství a život :)_
+_Jsem lektorka, učitelka a stálým žákem jógy, masérka, bylinářka, olejíčkářka, proradní ( pro rady ) mladá bába, mastičkářka, duchařiny, rituály, kořeny, šamanství, výklad karet, napojení se přes mistry..._
+
+_a toto vše jsem chtěla dát dohromady pro všechny_ 

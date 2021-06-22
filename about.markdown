@@ -32,21 +32,23 @@ _Pracuji hlavně s aromaterapií, která dokáže vstoupit do našich buněk skr
 
 **_Dostupné rituální sady :_**
 
-**_Přechodovka_** - _vhodná pro přechod z dívky k ženě ( první menstruace ), svatba, rozvod, přechod ženy ve vyzrálou ženu( menopauza), změna partnera, bydlení, příchod miminka..._
+ **_1.Přechodovka_** - _vhodná pro přechod z dívky k ženě ( první menstruace ), svatba, rozvod, přechod ženy ve vyzrálou ženu( menopauza), změna partnera, bydlení, příchod miminka..._
 
-**_Vědomá žena_** _- vhodná pro vědomé ženy, které mají obrovské změny ve svém životě, porod, početí, změna pozice v práci...jen tak pro vědomé ženy, při rozhodnutí jakémkoli_
+**_2.Vědomá žena_** _- vhodná pro vědomé ženy, které mají obrovské změny ve svém životě, porod, početí, změna pozice v práci...jen tak pro vědomé ženy, při rozhodnutí jakémkoli_
 
-**_Muž ve své síle_** _- muži, všechny rituály jsou vhodné pro vás, z chlapce do muže, pro otce a syna, i pro matku a sny, který nemá v svém životě otce a chcete mu dopřát jeho přechodový rituál v muže, muž který potřebuje získat svojí sílu, sebevědomí, lásku k sobě, k ženám, po rozvodu, po smrti ženy..._
+**_3.Muž ve své síle_** _- muži, všechny rituály jsou vhodné pro vás, z chlapce do muže, pro otce a syna, i pro matku a sny, který nemá v svém životě otce a chcete mu dopřát jeho přechodový rituál v muže, muž který potřebuje získat svojí sílu, sebevědomí, lásku k sobě, k ženám, po rozvodu, po smrti ženy..._
 
-**_Odloučení se, odpuštění, propuštění_** _- při rozloučení se s bytostí, která opustila náš svět - smrt, rozchod,rozvod, potrat..._
+**_4.Odloučení se, odpuštění, propuštění_** _- při rozloučení se s bytostí, která opustila náš svět - smrt, rozchod,rozvod, potrat..._
 
-**Lesaně** _vhodné jako dárek pro lesní žínku, která nutně nemusí bydlet v lese_
+**5.Lesaně** _vhodné jako dárek pro lesní žínku, která nutně nemusí bydlet v lese_
 
-**Pro tři čaroDějky** _sada určená třem ženám či dívkám pro svá kouzla a rituály_
+**6.Pro tři čaroDějky** _sada určená třem ženám či dívkám pro svá kouzla a rituály_
 
-**Hojnost,** _rituál pro prosperitu v jakékoli životní oblasti_
+**7.Hojnost,** _rituál pro prosperitu v jakékoli životní oblasti_
 
-**Dvojplamen** _pro muže a ženu._
+**8.Dvojplamen** _pro muže a ženu._
+
+Foto dole a číslo k dané sadě :)
 
 **_Vše co koupíte, můžete koupit někomu z lásky, kdo by ocenil a byl rád, za rituál, za nádhernou sadu, za pomoc na jeho cestě. Máte kamarádku, která si neví rady se vztahem? Nebo dva přátelé, které čeká svatba? Silnou ženu, která ztrácí půdu pod nohama? Pro ně jsou vhodné naše rituálky._**
 

@@ -72,7 +72,7 @@ _Můžete se více dočíst i zde www.baranyja.eu ._
 
    ![](/uploads/collagesila2.jpg)
 4. _Odloučení, odpuštění_
-5. _Lesaně_
+5. _Lesaně - cena 2777,-_
 
    ![](/uploads/lesana-kolaz22u.jpg)
 

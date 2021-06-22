@@ -44,9 +44,7 @@ _Pracuji hlavně s aromaterapií, která dokáže vstoupit do našich buněk skr
 
 **6.Pro tři čaroDějky** _sada určená třem ženám či dívkám pro svá kouzla a rituály_
 
-**7.Hojnost,** _rituál pro prosperitu v jakékoli životní oblasti_
-
-**8.Dvojplamen** _pro muže a ženu._
+**7.Dvojplamen** _pro muže a ženu._
 
 Foto dole a číslo k dané sadě :)
 

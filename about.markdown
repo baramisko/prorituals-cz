@@ -64,6 +64,10 @@ _Můžete se více dočíst i zde www.baranyja.eu ._
 
 **_Nyja_**
 
+**_5.Lesaně -_** _3333,-_
+
+![](/uploads/lesane.jpg)
+
 **Vonné kompozice obsah:** panenský , hypoalergenní olivový olej, z řeckého ostrova pochází z kláštera AGIA TRIADA (Svatá Trojice) na Krétě. K tomuto klášteru náleží rozlehlé olivové háje, o které se mniši sami starají a olivy pro lisování tohoto oleje pečlivě vybírají, což mu dodává tu nejvyšší možnou kvalitu, jemnost a nenahraditelnou chuť. Poté se olej v klášteře lisuje tradičním způsobem. Olivy pro výrobu tohoto exkluzivního oleje jsou jednodruhové, což je naprosto unikátní. Je to velmi podstatné měřítko kvality. Olivy, z nichž se tento olej lisuje, pocházejí pouze z olivových hájů přilehlých ke klášteru Agia Triada. Vzhledem k této jedinečnosti získal ochrannou známku I.G.P. Jedná se o chráněné zeměpisné označení, které se uděluje výrobkům chráněným nařízením Rady (ES) č. 509/2006. Olej se vyrábí ve velmi malém množství.
 
 **Bio éterické oleje** značky Saloos, Nobilis Thilia nebo Florihanna, nosič vůně v nejvyšší kvalitě.

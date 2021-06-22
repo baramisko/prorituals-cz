@@ -64,7 +64,7 @@ _Můžete se více dočíst i zde www.baranyja.eu ._
 
 **_Nyja_**
 
-**_5.Lesaně -_** _3333,-_
+**_5.Lesaně -_** _2777,-_
 
 ![](/uploads/lesane.jpg)
 

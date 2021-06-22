@@ -68,7 +68,7 @@ _Můžete se více dočíst i zde www.baranyja.eu ._
 
    ![](/uploads/prechodvoka2uup.jpg)
 2. Vědomá žena - cena 
-3. Muž ve své síle - cena 2666,-
+3. _Muž ve své síle - cena 2666,-_
 
    ![](/uploads/collagesila2.jpg)
 

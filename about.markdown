@@ -32,7 +32,7 @@ _Pracuji hlavně s aromaterapií, která dokáže vstoupit do našich buněk skr
 
 **_Dostupné rituální sady :_**
 
- **_1.Přechodovka_** - _vhodná pro přechod z dívky k ženě ( první menstruace ), svatba, rozvod, přechod ženy ve vyzrálou ženu( menopauza), změna partnera, bydlení, příchod miminka..._
+**_1.Přechodovka_** - _vhodná pro přechod z dívky k ženě ( první menstruace ), svatba, rozvod, přechod ženy ve vyzrálou ženu( menopauza), změna partnera, bydlení, příchod miminka..._
 
 **_2.Vědomá žena_** _- vhodná pro vědomé ženy, které mají obrovské změny ve svém životě, porod, početí, změna pozice v práci...jen tak pro vědomé ženy, při rozhodnutí jakémkoli_
 

@@ -46,6 +46,8 @@ _Pracuji hlavně s aromaterapií, která dokáže vstoupit do našich buněk skr
 
 **7.Dvojplamen** _pro muže a ženu._
 
+**8. Rituál hojnosti** v jakékoli oblasti života
+
 Foto dole a číslo k dané sadě :)
 
 **_Vše co koupíte, můžete koupit někomu z lásky, kdo by ocenil a byl rád, za rituál, za nádhernou sadu, za pomoc na jeho cestě. Máte kamarádku, která si neví rady se vztahem? Nebo dva přátelé, které čeká svatba? Silnou ženu, která ztrácí půdu pod nohama? Pro ně jsou vhodné naše rituálky._**
@@ -66,6 +68,8 @@ _Můžete se více dočíst i zde www.baranyja.eu ._
 
    ![](/uploads/prechodvoka2uup.jpg)
 2. Vědomá žena - cena 3333,-
+
+   ![](/uploads/vedomka2.jpg)
 3. _Muž ve své síle - cena 2666,-_
 
    ![](/uploads/collagesila2.jpg)

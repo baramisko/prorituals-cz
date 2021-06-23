@@ -77,6 +77,11 @@ _Můžete se více dočíst i zde www.baranyja.eu ._
 5. _Lesaně - cena 2777,-_
 
    ![](/uploads/lesana-kolaz22u.jpg)
+6. Pro tři ČaroDějky -cena 3333,-
+7. Dvojplamen duší - cena 3333,-
+8. Rituál hojnosti - cena 2999,-
+
+   ![](/uploads/hojnosta.jpg)
 
 **Krabička** je z borovicového dřeva se zámkem
 

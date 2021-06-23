@@ -65,7 +65,7 @@ _Můžete se více dočíst i zde www.baranyja.eu ._
 1. _Přechodovka - cena 2777,-_
 
    ![](/uploads/prechodvoka2uup.jpg)
-2. Vědomá žena - dvě sady k dispozici - cena 3333,-/Ks
+2. Vědomá žena - cena 3333,-
 3. _Muž ve své síle - cena 2666,-_
 
    ![](/uploads/collagesila2.jpg)

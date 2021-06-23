@@ -48,7 +48,9 @@ _Pracuji hlavně s aromaterapií, která dokáže vstoupit do našich buněk skr
 
 **8. Rituál hojnosti** v jakékoli oblasti života
 
-Foto dole a číslo k dané sadě :)
+_Vše bude popsáno v dopise, který přijde zároveň se sadou, abyste si třeba i věděli rady či měli inspiraci_
+
+_Foto dole a číslo k dané sadě :)_
 
 **_Vše co koupíte, můžete koupit někomu z lásky, kdo by ocenil a byl rád, za rituál, za nádhernou sadu, za pomoc na jeho cestě. Máte kamarádku, která si neví rady se vztahem? Nebo dva přátelé, které čeká svatba? Silnou ženu, která ztrácí půdu pod nohama? Pro ně jsou vhodné naše rituálky._**
 

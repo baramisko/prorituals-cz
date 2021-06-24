@@ -64,7 +64,11 @@ _Můžete se více dočíst i zde www.baranyja.eu ._
 
 **_Nyja_**
 
+_Více fotek najdete na INSTAGRAMU, nebo pošlu mailem detaily :)_
+
 1. _Přechodovka - cena 2777,-_
+
+   ![](/uploads/img_0052.JPG)
 2. Vědomá žena - cena 3333,-
 3. _Muž ve své síle - cena 2666,-_
 4. _Odloučení, odpuštění - cena 3111,-_

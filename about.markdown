@@ -54,9 +54,9 @@ _Foto dole a číslo k dané sadě :)_
 
 **_Vše co koupíte, můžete koupit někomu z lásky, kdo by ocenil a byl rád, za rituál, za nádhernou sadu, za pomoc na jeho cestě. Máte kamarádku, která si neví rady se vztahem? Nebo dva přátelé, které čeká svatba? Silnou ženu, která ztrácí půdu pod nohama? Pro ně jsou vhodné naše rituálky._**
 
-_Kupujete to , co je na obrázku vždy podle dané fotografie a obsahu. Vždy podle roční doby, situace na naší planetě a v zemi, podle dostupnosti minerálů a hlavně intuice :)_
+_Kupujete to , co je na obrázku vždy podle dané fotografie a obsahu. Záleží na roční době, situace na naší planetě a v zemi, podle dostupnosti minerálů a hlavně intuice :)_
 
-_Cena se liší podle hmotnosti a velikosti minerálu a jeho původu, podle náročnosti vonné kompozice. Nekupujete tudíž načančanou bedýnku, ale obsah a svůj zážitek._
+_Cena se liší podle hmotnosti a velikosti minerálu a jeho původu, podle náročnosti vonné kompozice._ 
 
 _Příběhem k těmto rituálním sadám ,je dlouhá cesta mojí duši do zakotvení se toho, čemu opravdu rozumím, co funguje a já toto poslání mohu šířit dál._
 

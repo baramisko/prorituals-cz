@@ -83,8 +83,6 @@ _Můžete se více dočíst i zde www.baranyja.eu ._
 7. Dvojplamen duší - cena 3333,-
 8. Rituál hojnosti - cena 2999,-
 
-   ![](/uploads/hojnosta.jpg)
-
 **Krabička** je z borovicového dřeva se zámkem
 
 **Svíce** jsou ručně dělány ze sojového nebo palmového vosku z ekologického zemědělství, každá je originál , se záměrem pro rituál, některá obsahuje silice ,jiná i byliny. Pokud se stane že svíce vyteče, je to v pořádku, čistí prostor a majitele, dejte si pod ní rozhodně talířek nebo alobal. Pokud se stane ,že nehoří a tzv. se knot dusí, je třeba se svíčkou pracovat tak, že jí uděláte prostor pro hoření - odlejete několikrát vosk, tzn. čistíte vědomě Vy.

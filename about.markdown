@@ -54,7 +54,7 @@ _Foto dole a číslo k dané sadě :)_
 
 _Kupujete to , co je na obrázku vždy podle dané fotografie a obsahu. Záleží na roční době, situace na naší planetě a v zemi, podle dostupnosti minerálů a hlavně intuice :)_
 
-_Cena se liší podle hmotnosti a velikosti minerálu a jeho původu, podle náročnosti vonné kompozice._ 
+_Cena se liší podle hmotnosti a velikosti minerálu a jeho původu, podle náročnosti vonné kompozice._
 
 _Příběhem k těmto rituálním sadám ,je dlouhá cesta mojí duši do zakotvení se toho, čemu opravdu rozumím, co funguje a já toto poslání mohu šířit dál._
 
@@ -65,28 +65,12 @@ _Můžete se více dočíst i zde www.baranyja.eu ._
 **_Nyja_**
 
 1. _Přechodovka - cena 2777,-_
-
-   ![](/uploads/prechodvoka2uup.jpg)
 2. Vědomá žena - cena 3333,-
-
-   ![](/uploads/vedomka2.jpg)
-
-   ![](/uploads/img_0071.JPG)
 3. _Muž ve své síle - cena 2666,-_
-
-   ![](/uploads/collagesila2.jpg)
 4. _Odloučení, odpuštění - cena 3111,-_
-
-   ![](/uploads/odpusteni.jpg)
 5. _Lesaně - cena 2777,-_
-
-   ![](/uploads/lesana-kolaz22u.jpg)
-
-   ![](/uploads/img_0013.JPG)
 6. Pro tři ČaroDějky -cena 3333,-
 7. Dvojplamen duší - cena 2777,-
-
-   ![](/uploads/dvojplamen-duse.jpg)
 
 **Krabička** je z borovicového dřeva se zámkem
 

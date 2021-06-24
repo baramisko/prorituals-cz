@@ -20,7 +20,7 @@ _Přes objednání, dostanete odkaz na hlubinnou meditaci._
 
 **_Sady jsou k dispozici vždy po pár kusech, počet je vždy napsán u rituální sady._**
 
-**_Nejsme E-shop, proto je třeba napsat o rituální sadu, která Vás zaujala a zpětně dostanete informace o platbě a kam Vám můžeme Váš rituál poslat apod._**
+**_Nejsem E-shop, proto je třeba napsat o rituální sadu, která Vás zaujala a zpětně dostanete informace o platbě a kam Vám můžeme Váš rituál poslat apod._**
 
 _V mailu se rovněž domluvíme na záměru vaší osobní vonné kompozice , pokud budete chtít, pokud je to dárek, necháte to na mne, udělám vše proto, aby byla nacítěná._
 

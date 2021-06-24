@@ -84,7 +84,9 @@ _Můžete se více dočíst i zde www.baranyja.eu ._
 
    ![](/uploads/img_0013.JPG)
 6. Pro tři ČaroDějky -cena 3333,-
-7. Dvojplamen duší - cena 3333,-
+7. Dvojplamen duší - cena 2777,-
+
+   ![](/uploads/dvojplamen-duse.jpg)
 
 **Krabička** je z borovicového dřeva se zámkem
 

@@ -72,6 +72,8 @@ _Můžete se více dočíst i zde www.baranyja.eu ._
 2. Vědomá žena - cena 3333,-
 
    ![](/uploads/vedomka2.jpg)
+
+   ![](/uploads/img_0071.JPG)
 3. _Muž ve své síle - cena 2666,-_
 
    ![](/uploads/collagesila2.jpg)

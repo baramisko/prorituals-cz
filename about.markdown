@@ -75,7 +75,9 @@ _Můžete se více dočíst i zde www.baranyja.eu ._
 3. _Muž ve své síle - cena 2666,-_
 
    ![](/uploads/collagesila2.jpg)
-4. _Odloučení, odpuštění - cena_
+4. _Odloučení, odpuštění - cena 3111,-_
+
+   ![](/uploads/odpusteni.jpg)
 5. _Lesaně - cena 2777,-_
 
    ![](/uploads/lesana-kolaz22u.jpg)

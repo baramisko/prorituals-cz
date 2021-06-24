@@ -46,8 +46,6 @@ _Pracuji hlavně s aromaterapií, která dokáže vstoupit do našich buněk skr
 
 **7.Dvojplamen** _pro muže a ženu._
 
-**8. Rituál hojnosti** v jakékoli oblasti života
-
 _Vše bude popsáno v dopise, který přijde zároveň se sadou, abyste si třeba i věděli rady či měli inspiraci_
 
 _Foto dole a číslo k dané sadě :)_
@@ -85,7 +83,6 @@ _Můžete se více dočíst i zde www.baranyja.eu ._
    ![](/uploads/img_0013.JPG)
 6. Pro tři ČaroDějky -cena 3333,-
 7. Dvojplamen duší - cena 3333,-
-8. Rituál hojnosti - cena 2999,-
 
 **Krabička** je z borovicového dřeva se zámkem
 

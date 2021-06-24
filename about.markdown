@@ -70,9 +70,17 @@ _Více fotek najdete na INSTAGRAMU, nebo pošlu mailem detaily :)_
 
    ![](/uploads/img_0052.JPG)
 2. Vědomá žena - cena 3333,-
+
+   ![](/uploads/img_0066.JPG)
 3. _Muž ve své síle - cena 2666,-_
+
+   ![](/uploads/img_0045.JPG)
 4. _Odloučení, odpuštění - cena 3111,-_
+
+   ![](/uploads/img_0094.JPG)
 5. _Lesaně - cena 2777,-_
+
+   ![](/uploads/img_0009.JPG)
 6. Pro tři ČaroDějky -cena 3333,-
 7. Dvojplamen duší - cena 2777,-
 

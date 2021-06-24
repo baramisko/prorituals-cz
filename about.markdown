@@ -82,7 +82,11 @@ _Více fotek najdete na INSTAGRAMU, nebo pošlu mailem detaily :)_
 
    ![](/uploads/img_0009.JPG)
 6. Pro tři ČaroDějky -cena 3333,-
+
+   ![](/uploads/img_0124.JPG)
 7. Dvojplamen duší - cena 2777,-
+
+   ![](/uploads/img_0109.JPG)
 
 **Krabička** je z borovicového dřeva se zámkem
 

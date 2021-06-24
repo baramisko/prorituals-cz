@@ -64,8 +64,6 @@ _Můžete se více dočíst i zde www.baranyja.eu ._
 
 **_Nyja_**
 
-_Více fotek najdete na INSTAGRAMU, nebo pošlu mailem detaily :)_
-
 1. _Přechodovka - cena 2777,-_
 
    ![](/uploads/img_0052.JPG)

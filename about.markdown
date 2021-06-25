@@ -88,8 +88,6 @@ _Můžete se více dočíst i zde www.baranyja.eu ._
 
    ![](/uploads/img_0045.JPG)
 4. _Odloučení, odpuštění - cena 3111,-_
-
-   ![](/uploads/img_0094.JPG)
 5. _Lesaně - cena 2777,-_
 
    ![](/uploads/img_0009.JPG)

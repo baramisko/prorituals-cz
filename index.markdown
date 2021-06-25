@@ -24,7 +24,7 @@ bara.nyja@seznam.cz
 
 _Něco málo o mne_
 
-_Jmenuji se Bára, jsem šťastně vdaná za Tomáše , který má dvě dcery, žijeme v chaloupce v Beskydech na skoro samotě v lese u potoka, osvojily si nás tři kočky, spousta netopýrů, rostlin, víl a elfů :) Vystudovala jsem Psychologii, stejně jako můj manžel a oba dva se věnujeme úplně něčemu jinému, jak už to v životě bývá. Pracovala jsem v instituci se závislými lidmi a stačilo._
+_Jmenuji se Bára, jsem šťastně vdaná za Tomáše , který má dvě dcery, žijeme v chaloupce v Beskydech na skoro samotě v lese u potoka, osvojily si nás tři kočky, spousta netopýrů, rostlin, víl a elfů :). Pracovala jsem v institucích se závislými lidmi, na základě svého vzdělání v oboru psychologie a terapie.... a stačilo._
 
 _Jsem lektorka, učitelka a stálým žákem jógy, masérka, bylinářka, olejíčkářka, proradní ( pro rady ) mladá bába, mastičkářka, duchařiny, rituály, kořeny, šamanství, výklad karet, napojení se přes mistry..._
 
@@ -38,7 +38,7 @@ _Jsem na Instagramu , můj profil od_kocici a rituální profil pro.rituals_
 
 ,,Jóga s Bárou je rozhodne jedna z najzmysluplnějších vecí,ktoré vykonávám pre svoje telo a ducha! Barča vždy vykúzlí dokonalú rovnováhu medzi cvičením a relaxaciou, takže po treningu mám telo unavené a mysel oddýchnutú. Bolesti ktoré ma trápili miznú a telo cítí aj svaly o ktorých ani nevedelo. Okrem toho je Barča úžasná lektorka s obrovyským srdcom čo je poznať na prístupe a doslova ním zlepší deň. Ďakujem! A chalani! S Barčou sa nebude cítit ako srágory, to Vám garantujem!,, Palo Š.
 
- Bára je citlivá, vysoce profesionální, na pochopení všeho má člověk dost času. Její hlas je uklidňující, oduševnělý, konejšivý, má v sobě něco magického...taková jóga a terapie, které vede  není jen sestavou fyzického cvičení, člověk dochází s pocitem přidané hodnoty, dotkl se duchovních sfér.,, J.J.
+Bára je citlivá, vysoce profesionální, na pochopení všeho má člověk dost času. Její hlas je uklidňující, oduševnělý, konejšivý, má v sobě něco magického...taková jóga a terapie, které vede  není jen sestavou fyzického cvičení, člověk dochází s pocitem přidané hodnoty, dotkl se duchovních sfér.,, J.J.
 
 ,,Byal jsem uvítána v místnosti, která voněla, zapálené svíčky a příjemná atmosféra, při masáži se o mne starala tak,aby mi nebylo teplo,což je pro masáž velmi důležité. Citlivá ,relaxační hudba, doprovodila a umocnila atmosféru ještě více.Masáž byla opravdu poctivá, voňavá, odcházela jsem jako nový člověk, tak krásně strávenou hodinu doporučuji vřele všem.,, K.J.
 

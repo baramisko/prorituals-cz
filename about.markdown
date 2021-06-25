@@ -92,7 +92,7 @@ _Můžete se více dočíst i zde www.baranyja.eu ._
 6. Pro tři ČaroDějky -cena 3333,-
 
    ![](/uploads/img_0124.JPG)
-7. Dvojplamen duší - cena 2777,-
+7. Dvojplamen duší - cena 2888,-
 
    ![](/uploads/img_0109.JPG)
 

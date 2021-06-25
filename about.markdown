@@ -38,9 +38,15 @@ Obsah - Růženín, vonná kompozice, bílá šalvěj vykuřovadlo, růženín k
 
 **_2.Vědomá žena_** _- vhodná pro vědomé ženy, které mají obrovské změny ve svém životě, porod, početí, změna pozice v práci...jen tak pro vědomé ženy, při rozhodnutí jakémkoli_
 
+Obsah - Nádherný ametyst nabitý silou, přívěsek modrý avanturín, vonná kompozice ,Vědomka, , bílá šalvěj vykuřovadlo, rituální svíce s levandulí, levandulová sůl, náramek čirý křišťál
+
 **_3.Muž ve své síle_** _- muži, všechny rituály jsou vhodné pro vás, z chlapce do muže, pro otce a syna, i pro matku a sny, který nemá v svém životě otce a chcete mu dopřát jeho přechodový rituál v muže, muž který potřebuje získat svojí sílu, sebevědomí, lásku k sobě, k ženám, po rozvodu, po smrti ženy..._
 
+Obsah - Nabitý, silový kyanit, přívěsek černý turmalín, velké vykuřovadlo bílá šalvěj, vonná kompozice sestavená mužem v síle pro muže, náramek černý obsidián, sůl s vůní a bylinami máty a vřesu a rituální svíce komunikační
+
 **_4.Odloučení se, odpuštění, propuštění_** _- při rozloučení se s bytostí, která opustila náš svět - smrt, rozchod,rozvod, potrat..._
+
+Obsah - Velký křišťál s vědomím, které sděluji až po zakoupení, menší křišťál, rovněž, Palo Santo a bílá šalvěj jako vykuřovadla, dva přívěsky - citrín a jaspis, dva surové růženíny, dva náramky - čirý křištál a ametyst, jasmínová sůl a vonná kompozice pro tuto sestavu
 
 **5.Lesaně** _vhodné jako dárek pro lesní žínku, která nutně nemusí bydlet v lese_
 

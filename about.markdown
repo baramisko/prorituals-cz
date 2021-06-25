@@ -54,6 +54,8 @@ Obsah - nádherný lesní smaragd, přírodní,nese vědomí, které sděluji po
 
 **6.Pro tři čaroDějky** _sada určená třem ženám či dívkám pro svá kouzla a rituály_
 
+Obsah X 3 - bílá šalvěj svazek vykuřovací, náramek avanturín sluneční, přívěsek je červený jaspis, jasmínová sůl pro každou čarodámu, tři nádherné křištály, jejíchž krásu nelze tak hezky vyfotit, nesou vědomí tří bohyň, sdělím po zakoupení, tři rituální svíce a jedna společná pro váš krásný rituál
+
 **7.Dvojplamen** _pro muže a ženu._
 
 _Vše bude popsáno v dopise, který přijde zároveň se sadou, abyste si třeba i věděli rady či měli inspiraci_

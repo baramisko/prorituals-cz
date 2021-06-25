@@ -6,9 +6,7 @@ in_menu: true
 ---
 _S láskou sestavené ..._
 
-_Všechny spirituální sady, které zde najdete, jsou ručně dělané, v Beskydech v chaloupce._
-
-_Obsahují bylinné kompozice, které jsme vybírali pečlivě, ekologické a ekonomické, vlastní výrobky nebo místní, i rodinné, tak aby byly co nejdříve Fair trade a podporovaly rozvoj našich lokalit a dodavatelů._
+_Obsahují bylinné kompozice, které jsme vybírali pečlivě, ekologické a ekonomické, vlastní výrobky nebo místní, i rodinné, tak aby byly co nejvíce Fair trade a podporovaly rozvoj našich lokalit a dodavatelů._
 
 _Vše je šetrné k pokožce, přírodě i k celému tělu._
 

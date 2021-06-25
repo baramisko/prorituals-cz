@@ -16,13 +16,11 @@ _Kameny také, které pečlivě vybírám, aby nebyly překupovány z podvodnýc
 
 _Přes objednání, dostanete odkaz na hlubinnou meditaci._
 
+_Pracuji hlavně s aromaterapií, která dokáže vstoupit do našich buněk skrze své vůně, nepřeplácávám vůně, ale věřím, že se rozvoní právě v té chvíli , kdy je třeba, po zkušenostech mých i mých přátel, kteří byli dobrovolní testeři._
+
 **_Sady jsou k dispozici vždy po pár kusech, počet je vždy napsán u rituální sady._**
 
 **_Nejsem E-shop, proto je třeba napsat o rituální sadu, která Vás zaujala a zpětně dostanete informace o platbě a kam Vám můžeme Váš rituál poslat apod._**
-
-_V mailu se rovněž domluvíme na záměru vaší osobní vonné kompozice , pokud budete chtít, pokud je to dárek, necháte to na mne, udělám vše proto, aby byla nacítěná._
-
-_Pracuji hlavně s aromaterapií, která dokáže vstoupit do našich buněk skrze své vůně, nepřeplácávám vůně, ale věřím, že se rozvoní právě v té chvíli , kdy je třeba, po zkušenostech mých i mých přátel, kteří byli dobrovolní testeři._
 
 **_Pokud kupujete sadu jako dárek, obsah je vždy napsán i vlastnoručním dopisem uvnitř, takže majitel vždy bude vědět, co k němu připutovalo._**
 

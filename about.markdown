@@ -30,7 +30,7 @@ _Pracuji hlavně s aromaterapií, která dokáže vstoupit do našich buněk skr
 
 **_1.Přechodovka_** - _vhodná pro přechod z dívky k ženě ( první menstruace ), svatba, rozvod, přechod ženy ve vyzrálou ženu( menopauza), změna partnera, bydlení, příchod miminka..._
 
-Obsah - Růženín, vonná kompozice, bílá šalvěj vykuřovadlo, růženín kyvadlo, přívěsek růženín, náramek ametyst, rituální svíce s šalvějí a jasmínová sůl.
+Obsah - Růženín, vonná kompozice 10ml, bílá šalvěj vykuřovadlo, růženín kyvadlo, přívěsek růženín, náramek ametyst, rituální svíce s šalvějí a jasmínová sůl.
 
 **_2.Vědomá žena_** _- vhodná pro vědomé ženy, které mají obrovské změny ve svém životě, porod, početí, změna pozice v práci...jen tak pro vědomé ženy, při rozhodnutí jakémkoli_
 

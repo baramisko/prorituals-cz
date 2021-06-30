@@ -18,7 +18,3 @@ permalink: index.html
 Jednoduše
 
 Jednaduše
-
-Nevíte -li si rady, neváhejte kontaktovat mailem, poradíme rádi.
-
-bara.nyja@seznam.cz

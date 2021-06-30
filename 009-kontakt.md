@@ -5,4 +5,6 @@ in_menu: true
 permalink: kontakt.html
 
 ---
-Kontakt
+_Kontakt na mne je bara.nyja@seznam.cz_
+
+_nebo přes Instagram Pro.Rituals_

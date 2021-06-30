@@ -58,5 +58,3 @@ _Kupujete to , co je na obrázku vždy podle dané fotografie a obsahu. Zálež�
 _Cena se liší podle hmotnosti a velikosti minerálu a jeho původu, podle náročnosti vonné kompozice._
 
 _Příběhem k těmto rituálním sadám ,je dlouhá cesta mojí duši do zakotvení se toho, čemu opravdu rozumím, co funguje a já toto poslání mohu šířit dál._
-
-_Můžete se více dočíst i zde www.baranyja.eu ._

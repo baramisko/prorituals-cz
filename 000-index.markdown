@@ -2,7 +2,7 @@
 layout: page
 title: Rituály pro...
 in_menu: true
-
+permalink: index.html
 ---
 ![](/uploads/rituals.jpg)
 

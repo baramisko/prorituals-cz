@@ -2,7 +2,7 @@
 layout: page
 title: Rituální sady
 in_menu: true
-
+permalink: ritualni-sady.html
 ---
 _S láskou sestavené ..._
 

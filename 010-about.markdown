@@ -51,8 +51,6 @@ _Pracuji hlavně s aromaterapií, která dokáže vstoupit do našich buněk skr
 
 **_Pokud kupujete sadu jako dárek, obsah je vždy napsán i vlastnoručním dopisem uvnitř, takže majitel vždy bude vědět, co k němu připutovalo._**
 
-**_Kontakt - mail - bara.nyja@seznam.cz_**
-
 **_Vše co koupíte, můžete koupit někomu z lásky, kdo by ocenil a byl rád, za rituál, za nádhernou sadu, za pomoc na jeho cestě. Máte kamarádku, která si neví rady se vztahem? Nebo dva přátelé, které čeká svatba? Silnou ženu, která ztrácí půdu pod nohama? Pro ně jsou vhodné naše rituálky._**
 
 _Kupujete to , co je na obrázku vždy podle dané fotografie a obsahu. Záleží na roční době, situace na naší planetě a v zemi, podle dostupnosti minerálů a hlavně intuice :)_

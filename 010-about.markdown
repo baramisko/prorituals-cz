@@ -17,6 +17,8 @@ _...a toto vše a mnohem více, jsem chtěla dát dohromady pro nás všechny...
 
 _Jsem na Instagramu , můj profil od_kocici a rituální profil pro.rituals_
 
+[https://youtu.be/Ze4V8jWLtC0](https://youtu.be/Ze4V8jWLtC0 "https://youtu.be/Ze4V8jWLtC0") video , pro ty jenž chtějí vědět, co s rituály dál 
+
 ![](/uploads/img_20210429_151733-1.jpg)
 
 **Pár milých slov ,spokojených klientů jógy a masáží, terapií...**

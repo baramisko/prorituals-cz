@@ -17,7 +17,7 @@ _...a toto vše a mnohem více, jsem chtěla dát dohromady pro nás všechny...
 
 _Jsem na Instagramu , můj profil od_kocici a rituální profil pro.rituals_
 
-[https://youtu.be/Ze4V8jWLtC0](https://youtu.be/Ze4V8jWLtC0 "https://youtu.be/Ze4V8jWLtC0") video bude zveřejněno po úpravě a korekci zvuku, děkuji :)
+[https://www.youtube.com/watch?v=T5eMjjlgGVQ](https://www.youtube.com/watch?v=T5eMjjlgGVQ "https://www.youtube.com/watch?v=T5eMjjlgGVQ") o rituálech
 
 ![](/uploads/img_20210429_151733-1.jpg)
 

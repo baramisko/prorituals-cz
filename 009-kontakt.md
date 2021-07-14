@@ -14,3 +14,5 @@ _Pokud žijete blízko Trojanovic v Beskydech, můžeme se domluvit na namíchá
 www.baranyja.eu
 
 www.joga-frenstat.cz
+
+![](/uploads/cemu-se-venuji-a-co-mohu-nabidnout-page0001.jpg)

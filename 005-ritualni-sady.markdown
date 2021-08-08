@@ -68,7 +68,7 @@ _Můžete se více dočíst i zde www.baranyja.eu ._
 5. _Lesaně - cena 2777,-_
 
    ![](/uploads/img_0009.JPG)
-6. Pro tři ČaroDějky -cena 3333,-
+6. Pro tři ČaroDějky -cena 2888,-
 
    ![](/uploads/img_0124.JPG)
 7. Dvojplamen duší - cena 2888,-

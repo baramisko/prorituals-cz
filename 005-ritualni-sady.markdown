@@ -23,8 +23,6 @@ _Mistr přerodu a přechodový rituál, pracuje se zde s třemi kartami, které 
 
 _Vše bude popsáno v dopise, který přijde zároveň se sadou, abyste si třeba i věděli rady či měli inspiraci_
 
-_Foto dole a číslo k dané sadě :)_
-
 **_Vše co koupíte, můžete koupit někomu z lásky, kdo by ocenil a byl rád, za rituál, za nádhernou sadu, za pomoc na jeho cestě. Máte kamarádku, která si neví rady se vztahem? Nebo dva přátelé, které čeká svatba? Silnou ženu, která ztrácí půdu pod nohama? Pro ně jsou vhodné naše rituálky._**
 
 _Kupujete to , co je na obrázku vždy podle dané fotografie a obsahu. Záleží na roční době, situace na naší planetě a v zemi, podle dostupnosti minerálů a hlavně intuice :)_

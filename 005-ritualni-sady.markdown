@@ -7,6 +7,10 @@ permalink: ritualni-sady.html
 ---
 _Momentálně dostupné sady :_
 
+_Rituál pro 4 živly a čarodámu, která již ví, co chce, magická sada pro sílu ženy, nové vědomí, nový vstup do svého pravého Já, na svou cestu._
+
+_V sadě je obsaženo žezlo z ametystu, sůl na očistu s jasmínem, šamanská šalvějová svíce s krystaly, šalvěj jako vykuřovadlo a náhrdelník temné noci, kyvadlo, 4 živlové karty a vůně , která nese vědomí bohyně Freyi._
+
 _Vše bude popsáno v dopise, který přijde zároveň se sadou, abyste si třeba i věděli rady či měli inspiraci_
 
 _Foto dole a číslo k dané sadě :)_

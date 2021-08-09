@@ -5,9 +5,9 @@ in_menu: true
 permalink: ritualni-sady.html
 
 ---
-_Momentálně dostupné sady :_
+**_Momentálně dostupné sady :_**
 
-_Rituál pro 4 živly a čarodámu, která již ví, co chce, magická sada pro sílu ženy, nové vědomí, nový vstup do svého pravého Já, na svou cestu._
+**_Rituál pro 4 živly a čarodámu_**_, která již ví, co chce, magická sada pro sílu ženy, nové vědomí, nový vstup do svého pravého Já, na svou cestu._
 
 _V sadě je obsaženo žezlo z ametystu, sůl na očistu s jasmínem, šamanská šalvějová svíce s krystaly, šalvěj jako vykuřovadlo a náhrdelník temné noci, kyvadlo, 4 živlové karty a vůně , která nese vědomí bohyně Freyi._
 
@@ -21,7 +21,7 @@ _Zasílám s ochrannými bylinami z lesa a z vlastní zahrádky_
 
 ![](/uploads/prerodnicekkkk.jpg)
 
-_Mistr přerodu a přechodový rituál, pracuje se zde s třemi kartami, které nám dávají jasně najevo, že je čas skončit bolest, skončit jako role oběti a jít dál. Proto je v této sadě opravdu silný krystal křišťálu, šalvěj, šamanská svíce s myrtou a mnohé další, které Vám bude popsáno v dopise společně s vašim přenosným oltářkem_
+**_Mistr přerodu a přechodový rituál_**_, pracuje se zde s třemi kartami, které nám dávají jasně najevo, že je čas skončit bolest, skončit jako role oběti a jít dál. Proto je v této sadě opravdu silný krystal křišťálu, šalvěj, šamanská svíce s myrtou a mnohé další, které Vám bude popsáno v dopise společně s vašim přenosným oltářkem_
 
 **_Cena 2333,-_**
 

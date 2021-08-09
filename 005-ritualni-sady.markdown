@@ -15,6 +15,8 @@ _Zasílám s ochrannými bylinami z lesa a z vlastní zahrádky_
 
 ![](/uploads/na-web-dve.jpg)
 
+![](/uploads/na-web.jpg)
+
 _Vše bude popsáno v dopise, který přijde zároveň se sadou, abyste si třeba i věděli rady či měli inspiraci_
 
 _Foto dole a číslo k dané sadě :)_

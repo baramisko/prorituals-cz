@@ -5,35 +5,7 @@ in_menu: true
 permalink: ritualni-sady.html
 
 ---
-**_Dostupné rituální sady, foto dole:_**
-
-**_1.Přechodovka_** - _vhodná pro přechod z dívky k ženě ( první menstruace ), svatba, rozvod, přechod ženy ve vyzrálou ženu( menopauza), změna partnera, bydlení, příchod miminka..._
-
-Obsah - Růženín, vonná kompozice 10ml, bílá šalvěj vykuřovadlo, růženín kyvadlo, přívěsek růženín, náramek ametyst, rituální svíce s šalvějí a jasmínová sůl.
-
-**_2.Vědomá žena_** _- vhodná pro vědomé ženy, které mají obrovské změny ve svém životě, porod, početí, změna pozice v práci...jen tak pro vědomé ženy, při rozhodnutí jakémkoli_
-
-Obsah - Nádherný ametyst nabitý silou, přívěsek modrý avanturín, vonná kompozice - Vědomka -10ml, , bílá šalvěj vykuřovadlo, rituální svíce s levandulí, levandulová sůl, náramek čirý křišťál
-
-**_3.Muž ve své síle_** _- muži, všechny rituály jsou vhodné pro vás, z chlapce do muže, pro otce a syna, i pro matku a sny, který nemá v svém životě otce a chcete mu dopřát jeho přechodový rituál v muže, muž který potřebuje získat svojí sílu, sebevědomí, lásku k sobě, k ženám, po rozvodu, po smrti ženy..._
-
-Obsah - Nabitý, silový kyanit, přívěsek černý turmalín, velké vykuřovadlo bílá šalvěj, vonná kompozice sestavená mužem v síle pro muže, náramek černý obsidián, sůl s vůní a bylinami máty a vřesu a rituální svíce komunikační
-
-**_4.Odloučení se, odpuštění, propuštění_** _- při rozloučení se s bytostí, která opustila náš svět - smrt, rozchod,rozvod, potrat..._
-
-Obsah - Velký křišťál s vědomím, které sděluji až po zakoupení, menší křišťál, rovněž, Palo Santo a bílá šalvěj jako vykuřovadla, dva přívěsky - citrín a jaspis, dva surové růženíny, dva náramky - čirý křištál a ametyst, jasmínová sůl a vonná kompozice pro tuto sestavu, svíce bude po dohodě s majitelem dodělána pro záměr
-
-**5.Lesaně** _vhodné jako dárek pro lesní žínku, která nutně nemusí bydlet v lese_
-
-Obsah - nádherný lesní smaragd, přírodní,nese vědomí, které sděluji po zakoupení, přívěsek je rubín v zoistu, náramek sestaven z křišťálu, ametystu, fluoritu, vykuřovadlo velký svazek bílé šalvěje, špalíček Palo Santa, mátovo kopřivová sůl, vonná kompozice lesní ženy, rituální svíce s myrtou
-
-**6.Pro tři čaroDějky** _sada určená třem ženám či dívkám pro svá kouzla a rituály_
-
-Obsah X 3 - bílá šalvěj svazek vykuřovací, náramek avanturín sluneční, přívěsek je červený jaspis, jasmínová sůl pro každou čarodámu, tři nádherné křištály, jejíchž krásu nelze tak hezky vyfotit, nesou vědomí tří bohyň, sdělím po zakoupení, tři rituální svíce a jedna společná pro váš krásný rituál
-
-**7.Dvojplamen** _pro muže a ženu._
-
-Obsahem této sady - pro každého náramek z křišťálu a černého obsidiánu - jin a jan vyvážení, špalíček Palo Santa, pro ženu přívěsek v podobě křišťálu a pro muže černý turmalín, společná velká sůl s růží a jasmínem, ručně dělané čokoládové mýdlo pro společnou koupel, bílá šalvěj jako vykuřovadlo pro očistu, dvě svíčky pro harmonizaci druhé čakry, dvě vonné kompozice , pro muže bílá , pro ženu olejová, dva nádherné krystaly, které mají oba dva na sobě další krystal - pro hlubší spojení partnerství, růženín pro společné vědomí vztahu
+_Momentálně dostupné sady :_
 
 _Vše bude popsáno v dopise, který přijde zároveň se sadou, abyste si třeba i věděli rady či měli inspiraci_
 
@@ -53,28 +25,6 @@ _Můžete se více dočíst i zde www.baranyja.eu ._
 
 **_Nyja_**
 
-1. _Přechodovka - cena 2777,-_
-
-   ![](/uploads/img_0052.JPG)
-2. Vědomá žena - cena 2888,-
-
-   ![](/uploads/img_0065.jpg)
-3. _Muž ve své síle - cena 2666,-_
-
-   ![](/uploads/img_0045.JPG)
-4. _Odloučení, odpuštění - cena 3111,-_
-
-   ![](/uploads/na-web-propusteni.jpg)
-5. _Lesaně - cena 2777,-_
-
-   ![](/uploads/img_0009.JPG)
-6. Pro tři ČaroDějky -cena 2888,-
-
-   ![](/uploads/img_0124.JPG)
-7. Dvojplamen duší - cena 2888,-
-
-   ![](/uploads/img_0109.JPG)
-
 **Krabička** je z borovicového dřeva se zámkem
 
 ![](/uploads/img_0018.JPG)
@@ -82,6 +32,8 @@ _Můžete se více dočíst i zde www.baranyja.eu ._
 **Svíce** jsou ručně dělány ze sojového nebo palmového vosku z ekologického zemědělství, každá je originál , se záměrem pro rituál, některá obsahuje silice ,jiná i byliny. Pokud se stane že svíce vyteče, je to v pořádku, čistí prostor a majitele, dejte si pod ní rozhodně nehořlavý podtácek. Pokud se stane ,že nehoří a tzv. se knot dusí, je třeba se svíčkou pracovat tak, že jí uděláte prostor pro hoření a odlijete vrchní vosk, aby se rozhořel plamen.
 
 **Vonné kompozice obsah:** panenský , hypoalergenní olivový olej, z řeckého ostrova pochází z kláštera AGIA TRIADA (Svatá Trojice) na Krétě. K tomuto klášteru náleží rozlehlé olivové háje, o které se mniši sami starají a olivy pro lisování tohoto oleje pečlivě vybírají, což mu dodává tu nejvyšší možnou kvalitu, jemnost a nenahraditelnou chuť. Poté se olej v klášteře lisuje tradičním způsobem. Olivy pro výrobu tohoto exkluzivního oleje jsou jednodruhové, což je naprosto unikátní. Je to velmi podstatné měřítko kvality. Olivy, z nichž se tento olej lisuje, pocházejí pouze z olivových hájů přilehlých ke klášteru Agia Triada. Vzhledem k této jedinečnosti získal ochrannou známku I.G.P. Jedná se o chráněné zeměpisné označení, které se uděluje výrobkům chráněným nařízením Rady (ES) č. 509/2006. Olej se vyrábí ve velmi malém množství.
+
+Lze vybrat i z luxusní řady ro dámy či pány, co si potrpí na vzhled flakónku
 
 **Bio éterické oleje** a nosič vůně v nejvyšší kvalitě.
 

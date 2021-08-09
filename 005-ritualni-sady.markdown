@@ -25,6 +25,16 @@ _Zasílám s ochrannými bylinami z lesa a z vlastní zahrádky_
 
 **_Cena 2333,-_**
 
+#### **_Chystáme : Podzimní rovnodennost - pouze TŘI sady_**
+
+####                   **_Pro Vílu_**
+
+####                   **_Pro vědomý pár_**
+
+#### 
+
+#### 
+
 _Vše bude popsáno v dopise, který přijde zároveň se sadou, abyste si třeba i věděli rady či měli inspiraci_
 
 **_Vše co koupíte, můžete koupit někomu z lásky, kdo by ocenil a byl rád, za rituál, za nádhernou sadu, za pomoc na jeho cestě. Máte kamarádku, která si neví rady se vztahem? Nebo dva přátelé, které čeká svatba? Silnou ženu, která ztrácí půdu pod nohama? Pro ně jsou vhodné naše rituálky._**

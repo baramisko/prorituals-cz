@@ -17,6 +17,8 @@ _Zasílám s ochrannými bylinami z lesa a z vlastní zahrádky_
 
 ![](/uploads/na-web.jpg)
 
+_Mistr přerodu a přechodový rituál, pracuje se zde s třemi kartami, které nám dávají jasně najevo, že je čas skončit bolest, skončit jako role oběti a jít dál. Proto je v této sadě opravdu silný krystal křišťálu, šalvěj, šamanská svíce s myrtou a mnohé další, které Vám bude popsáno v dopise společně s vašim přenosným oltářkem._
+
 _Vše bude popsáno v dopise, který přijde zároveň se sadou, abyste si třeba i věděli rady či měli inspiraci_
 
 _Foto dole a číslo k dané sadě :)_

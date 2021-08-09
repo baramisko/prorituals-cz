@@ -13,6 +13,8 @@ _V sadě je obsaženo žezlo z ametystu, sůl na očistu s jasmínem, šamanská
 
 ![](/uploads/na-web-dve.jpg)
 
+![](/uploads/na-web.jpg)
+
 _Zasílám s ochrannými bylinami z lesa a z vlastní zahrádky_
 
 **_Cena : 2333,- Kč_**

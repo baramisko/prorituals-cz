@@ -33,19 +33,19 @@ Na jógu s Bárou jsem narazila čistě náhodou prostřednictvím sociálních 
 
 ,,Terapie pomáhá nejen mně, ale i dětem, které k Báře mají obrovskou důvěru, je jemná, citlivá, ale dokáže být velmi tvrdá a přísná tam, kde je třeba. Masáže jsou balzám, dotek je opravdu léčivý, má v sobě nějakou čarovnou esenci která nejde popsat, její vonné oleje jsou naprosto BOŽÍ !!!!,, E.V
 
-_S láskou sestavené ..._
+**_S láskou sestavené ..._**
 
-_Obsahují bylinné kompozice, které jsme vybírali pečlivě, ekologické a ekonomické, vlastní výrobky nebo místní, i rodinné, tak aby byly co nejvíce Fair trade a podporovaly rozvoj našich lokalit a dodavatelů._
+**_Obsahují bylinné kompozice, které jsme vybírali pečlivě, ekologické a ekonomické, vlastní výrobky nebo místní, i rodinné, tak aby byly co nejvíce Fair trade a podporovaly rozvoj našich lokalit a dodavatelů._**
 
-_Vše je šetrné k pokožce, přírodě i k celému tělu._
+**_Vše je šetrné k pokožce, přírodě i k celému tělu._**
 
-_Šperky jsou vibračně nalazeny přímo pro danou rituální sadu._
+**_Šperky jsou vibračně nalazeny přímo pro danou rituální sadu._**
 
-_Kameny také, které pečlivě vybírám, aby nebyly překupovány z podvodných obchodů._
+**_Kameny také, které pečlivě vybírám, aby nebyly překupovány z podvodných obchodů._**
 
-_Přes objednání, dostanete odkaz na hlubinnou meditaci._
+**_Přes objednání, dostanete odkaz na hlubinnou meditaci._**
 
-_Pracuji hlavně s aromaterapií, která dokáže vstoupit do našich buněk skrze své vůně, nepřeplácávám vůně, ale věřím, že se rozvoní právě v té chvíli , kdy je třeba, po zkušenostech mých i mých přátel, kteří byli dobrovolní testeři._
+**_Pracuji hlavně s aromaterapií, která dokáže vstoupit do našich buněk skrze své vůně, nepřeplácávám vůně, ale věřím, že se rozvoní právě v té chvíli , kdy je třeba, po zkušenostech mých i mých přátel, kteří byli dobrovolní testeři._**
 
 **_Sady jsou k dispozici vždy po pár kusech, počet je vždy napsán u rituální sady._**
 
@@ -55,8 +55,8 @@ _Pracuji hlavně s aromaterapií, která dokáže vstoupit do našich buněk skr
 
 **_Vše co koupíte, můžete koupit někomu z lásky, kdo by ocenil a byl rád, za rituál, za nádhernou sadu, za pomoc na jeho cestě. Máte kamarádku, která si neví rady se vztahem? Nebo dva přátelé, které čeká svatba? Silnou ženu, která ztrácí půdu pod nohama? Pro ně jsou vhodné naše rituálky._**
 
-_Kupujete to , co je na obrázku vždy podle dané fotografie a obsahu. Záleží na roční době, situace na naší planetě a v zemi, podle dostupnosti minerálů a hlavně intuice :)_
+**_Kupujete to , co je na obrázku vždy podle dané fotografie a obsahu. Záleží na roční době, situace na naší planetě a v zemi, podle dostupnosti minerálů a hlavně intuice :)_**
 
-_Cena se liší podle hmotnosti a velikosti minerálu a jeho původu, podle náročnosti vonné kompozice._
+**_Cena se liší podle hmotnosti a velikosti minerálu a jeho původu, podle náročnosti vonné kompozice._**
 
-_Příběhem k těmto rituálním sadám ,je dlouhá cesta mojí duši do zakotvení se toho, čemu opravdu rozumím, co funguje a já toto poslání mohu šířit dál._
+**_Příběhem k těmto rituálním sadám ,je dlouhá cesta mojí duši do zakotvení se toho, čemu opravdu rozumím, co funguje a já toto poslání mohu šířit dál._**

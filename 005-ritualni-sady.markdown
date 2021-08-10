@@ -39,9 +39,9 @@ _Pro vaší dceru_
 
 ![](/uploads/prechodvoka2uup.jpg)
 
-#### **_Chystáme : Podzimní rovnodennost - pouze TŘI sady_**
+#### **_Chystáme :_** 
 
-#### **_Pro Vílu_**
+#### **_Podzimní rovnodennost - pouze TŘI sady_**
 
 #### **_Pro vědomý pár_**
 

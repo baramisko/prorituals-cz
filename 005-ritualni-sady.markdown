@@ -35,6 +35,8 @@ _Zasílám s ochrannými bylinami z lesa a z vlastní zahrádky_
 
 _Pro vaší dceru_
 
+**_Cena 1666,-_**
+
 ![](/uploads/prechodvoka2uup.jpg)
 
 #### **_Chystáme : Podzimní rovnodennost - pouze TŘI sady_**

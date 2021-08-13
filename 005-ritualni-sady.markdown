@@ -119,4 +119,6 @@ Fotografie jednotlivých minerálů, které jsou součástí sad, více fotek na
 
 ![](/uploads/img_0187.JPG)
 
-Nabídka jednotlivých esencí a vonných kompozic:
+**_Nabídka jednotlivých esencí a vonných kompozic:_**
+
+![](/uploads/img_0188.JPG)

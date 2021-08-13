@@ -45,6 +45,8 @@ Obsah X 3 - bílá šalvěj svazek vykuřovací, náramek avanturín sluneční,
 
 Obsahem této sady - pro každého náramek z křišťálu a černého obsidiánu - jin a jan vyvážení, špalíček Palo Santa, pro ženu přívěsek v podobě křišťálu a pro muže černý turmalín, společná velká sůl s růží a jasmínem, ručně dělané čokoládové mýdlo pro společnou koupel, bílá šalvěj jako vykuřovadlo pro očistu, dvě svíčky pro harmonizaci druhé čakry, dvě vonné kompozice , pro muže bílá , pro ženu olejová, dva nádherné krystaly, které mají oba dva na sobě další krystal - pro hlubší spojení partnerství, růženín pro společné vědomí vztahu
 
+![](/uploads/dvojplamen-duse.jpg)
+
 8. **_Rituál pro 4 živly a čarodámu_**_, která již ví, co chce, magická sada pro sílu ženy, nové vědomí, nový vstup do svého pravého Já, na svou cestu._
 
 _V sadě je obsaženo žezlo z ametystu, sůl na očistu s jasmínem, šamanská šalvějová svíce s krystaly, šalvěj jako vykuřovadlo a náhrdelník temné noci, kyvadlo, 4 živlové karty a vůně , která nese vědomí bohyně Freyi._

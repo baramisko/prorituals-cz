@@ -19,6 +19,8 @@ Obsah - Nádherný ametyst nabitý silou, přívěsek modrý avanturín, vonná 
 
 **_3.Muž ve své síle_** _- muži, všechny rituály jsou vhodné pro vás, z chlapce do muže, pro otce a syna, i pro matku a sny, který nemá v svém životě otce a chcete mu dopřát jeho přechodový rituál v muže, muž který potřebuje získat svojí sílu, sebevědomí, lásku k sobě, k ženám, po rozvodu, po smrti ženy..._
 
+![](/uploads/img_0045.JPG)
+
 Obsah - Nabitý, silový kyanit, přívěsek černý turmalín, velké vykuřovadlo bílá šalvěj, vonná kompozice sestavená mužem v síle pro muže, náramek černý obsidián, sůl s vůní a bylinami máty a vřesu a rituální svíce komunikační
 
 **_4.Odloučení se, odpuštění, propuštění_** _- při rozloučení se s bytostí, která opustila náš svět - smrt, rozchod,rozvod, potrat..._

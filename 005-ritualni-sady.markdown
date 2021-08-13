@@ -5,9 +5,11 @@ in_menu: true
 permalink: ritualni-sady.html
 
 ---
+_V každém rituálu je obsažen odkaz na meditaci pro záměr duše a také dopis ,jak s meditací i sadou pracovat :) společně v tom, každý ve svém nitru_
+
 **_Dostupné rituální sady, detailní fotky dole na stránce :_**
 
-**_1.Přechodovka_** - 1888,-![](/uploads/prechodvoka2uup.jpg) _vhodná pro přechod z dívky k ženě ( první menstruace ), svatba, rozvod, přechod ženy ve vyzrálou ženu( menopauza), změna partnera, bydlení, příchod miminka..._
+**_1.Přechodovka_** **- 1888,-**![](/uploads/prechodvoka2uup.jpg) _vhodná pro přechod z dívky k ženě ( první menstruace ), svatba, rozvod, přechod ženy ve vyzrálou ženu( menopauza), změna partnera, bydlení, příchod miminka..._
 
 Obsah - Růženín, vonná kompozice 10ml, bílá šalvěj vykuřovadlo, růženín kyvadlo, přívěsek růženín, náramek ametyst, rituální svíce s šalvějí a jasmínová sůl.
 

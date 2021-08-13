@@ -29,25 +29,25 @@ Obsah - Nabitý, silový kyanit, přívěsek černý turmalín, velké vykuřova
 
 Obsah - Velký křišťál s vědomím, které sděluji až po zakoupení, menší křišťál, rovněž, Palo Santo a bílá šalvěj jako vykuřovadla, dva přívěsky - citrín a jaspis, dva surové růženíny, dva náramky - čirý křištál a ametyst, jasmínová sůl a vonná kompozice pro tuto sestavu,  šamanská svíce s myrtou nebo bude po dohodě s majitelem dodělána pro záměr
 
-**5.Lesaně** _vhodné jako dárek pro lesní žínku, která nutně nemusí bydlet v lese_
+**5.Lesaně 2333,-** _vhodné jako dárek pro lesní žínku, která nutně nemusí bydlet v lese_
 
 ![](/uploads/lesana-kolaz22u.jpg)
 
 Obsah - nádherný lesní smaragd, přírodní,nese vědomí, které sděluji po zakoupení, přívěsek je rubín v zoistu, náramek sestaven z křišťálu, ametystu, fluoritu, vykuřovadlo velký svazek bílé šalvěje, špalíček Palo Santa, mátovo kopřivová sůl, vonná kompozice lesní ženy, rituální svíce s myrtou
 
-**6.Pro tři čaroDějky** _sada určená třem ženám či dívkám pro svá kouzla a rituály_
+**6.Pro tři čaroDějky** 3333,- _sada určená třem ženám či dívkám pro svá kouzla a rituály_
 
 ![](/uploads/img_0124.JPG)
 
 Obsah X 3 - bílá šalvěj svazek vykuřovací, náramek avanturín sluneční, přívěsek je červený jaspis, jasmínová sůl pro každou čarodámu, tři nádherné křištály, jejíchž krásu nelze tak hezky vyfotit, nesou vědomí tří bohyň, sdělím po zakoupení, tři rituální svíce a jedna společná pro váš krásný rituál
 
-**7.Dvojplamen** _pro muže a ženu._
+**7.Dvojplamen 2666,-** _pro muže a ženu._
 
 Obsahem této sady - pro každého náramek z křišťálu a černého obsidiánu - jin a jan vyvážení, špalíček Palo Santa, pro ženu přívěsek v podobě křišťálu a pro muže černý turmalín, společná velká sůl s růží a jasmínem, ručně dělané čokoládové mýdlo pro společnou koupel, bílá šalvěj jako vykuřovadlo pro očistu, dvě svíčky pro harmonizaci druhé čakry, dvě vonné kompozice , pro muže bílá , pro ženu olejová, dva nádherné krystaly, které mají oba dva na sobě další krystal - pro hlubší spojení partnerství, růženín pro společné vědomí vztahu
 
 ![](/uploads/dvojplamen-duse.jpg)
 
-1. **_Rituál pro 4 živly a čarodámu_**_, která již ví, co chce, magická sada pro sílu ženy, nové vědomí, nový vstup do svého pravého Já, na svou cestu._
+1. **_Rituál pro 4 živly a čarodámu 2333,-_**_, která již ví, co chce, magická sada pro sílu ženy, nové vědomí, nový vstup do svého pravého Já, na svou cestu._
 
 _V sadě je obsaženo žezlo z ametystu, sůl na očistu s jasmínem, šamanská šalvějová svíce s krystaly, šalvěj jako vykuřovadlo a náhrdelník temné noci, kyvadlo, 4 živlové karty a vůně , která nese vědomí bohyně Freyi._
 

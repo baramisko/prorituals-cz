@@ -103,4 +103,12 @@ Lze vybrat i z luxusní řady ro dámy či pány, co si potrpí na vzhled flakó
 
 Fotografie jednotlivých minerálů :
 
+![](/uploads/img_0142.JPG)
+
+![](/uploads/img_0146.JPG)
+
+![](/uploads/img_0161.JPG)
+
+![](/uploads/img_0137.JPG)
+
 Nabídka jednotlivých esencí a vonných kompozic:

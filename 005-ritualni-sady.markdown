@@ -102,3 +102,5 @@ Lze vybrat i z luxusní řady ro dámy či pány, co si potrpí na vzhled flakó
 **_V případě zájmu o sestavení na míru , mne kontaktujte alespoň měsíc předem - svatba, předporodní rituál, narozeniny, odjezd na delší cestu, ženský kruh, mužský kruh..._**
 
 Fotografie jednotlivých minerálů :
+
+Nabídka jednotlivých esencí a vonných kompozic:

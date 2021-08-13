@@ -7,11 +7,13 @@ permalink: ritualni-sady.html
 ---
 **_Dostupné rituální sady:_**
 
-**_1.Přechodovka_** - _vhodná pro přechod z dívky k ženě ( první menstruace ), svatba, rozvod, přechod ženy ve vyzrálou ženu( menopauza), změna partnera, bydlení, příchod miminka..._
+**_1.Přechodovka_** -![](/uploads/prechodvoka2uup.jpg) _vhodná pro přechod z dívky k ženě ( první menstruace ), svatba, rozvod, přechod ženy ve vyzrálou ženu( menopauza), změna partnera, bydlení, příchod miminka..._
 
 Obsah - Růženín, vonná kompozice 10ml, bílá šalvěj vykuřovadlo, růženín kyvadlo, přívěsek růženín, náramek ametyst, rituální svíce s šalvějí a jasmínová sůl.
 
 **_2.Vědomá žena_** _- vhodná pro vědomé ženy, které mají obrovské změny ve svém životě, porod, početí, změna pozice v práci...jen tak pro vědomé ženy, při rozhodnutí jakémkoli_
+
+![](/uploads/img_0073.JPG)
 
 Obsah - Nádherný ametyst nabitý silou, přívěsek modrý avanturín, vonná kompozice - Vědomka -10ml, , bílá šalvěj vykuřovadlo, rituální svíce s levandulí, levandulová sůl, náramek čirý křišťál
 

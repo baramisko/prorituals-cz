@@ -5,9 +5,37 @@ in_menu: true
 permalink: ritualni-sady.html
 
 ---
-**_Momentálně dostupné sady :_**
+**_Dostupné rituální sady:_**
 
-**_Rituál pro 4 živly a čarodámu_**_, která již ví, co chce, magická sada pro sílu ženy, nové vědomí, nový vstup do svého pravého Já, na svou cestu._
+**_1.Přechodovka_** - _vhodná pro přechod z dívky k ženě ( první menstruace ), svatba, rozvod, přechod ženy ve vyzrálou ženu( menopauza), změna partnera, bydlení, příchod miminka..._
+
+Obsah - Růženín, vonná kompozice 10ml, bílá šalvěj vykuřovadlo, růženín kyvadlo, přívěsek růženín, náramek ametyst, rituální svíce s šalvějí a jasmínová sůl.
+
+**_2.Vědomá žena_** _- vhodná pro vědomé ženy, které mají obrovské změny ve svém životě, porod, početí, změna pozice v práci...jen tak pro vědomé ženy, při rozhodnutí jakémkoli_
+
+Obsah - Nádherný ametyst nabitý silou, přívěsek modrý avanturín, vonná kompozice - Vědomka -10ml, , bílá šalvěj vykuřovadlo, rituální svíce s levandulí, levandulová sůl, náramek čirý křišťál
+
+**_3.Muž ve své síle_** _- muži, všechny rituály jsou vhodné pro vás, z chlapce do muže, pro otce a syna, i pro matku a sny, který nemá v svém životě otce a chcete mu dopřát jeho přechodový rituál v muže, muž který potřebuje získat svojí sílu, sebevědomí, lásku k sobě, k ženám, po rozvodu, po smrti ženy..._
+
+Obsah - Nabitý, silový kyanit, přívěsek černý turmalín, velké vykuřovadlo bílá šalvěj, vonná kompozice sestavená mužem v síle pro muže, náramek černý obsidián, sůl s vůní a bylinami máty a vřesu a rituální svíce komunikační
+
+**_4.Odloučení se, odpuštění, propuštění_** _- při rozloučení se s bytostí, která opustila náš svět - smrt, rozchod,rozvod, potrat..._
+
+Obsah - Velký křišťál s vědomím, které sděluji až po zakoupení, menší křišťál, rovněž, Palo Santo a bílá šalvěj jako vykuřovadla, dva přívěsky - citrín a jaspis, dva surové růženíny, dva náramky - čirý křištál a ametyst, jasmínová sůl a vonná kompozice pro tuto sestavu, svíce bude po dohodě s majitelem dodělána pro záměr
+
+**5.Lesaně** _vhodné jako dárek pro lesní žínku, která nutně nemusí bydlet v lese_
+
+Obsah - nádherný lesní smaragd, přírodní,nese vědomí, které sděluji po zakoupení, přívěsek je rubín v zoistu, náramek sestaven z křišťálu, ametystu, fluoritu, vykuřovadlo velký svazek bílé šalvěje, špalíček Palo Santa, mátovo kopřivová sůl, vonná kompozice lesní ženy, rituální svíce s myrtou
+
+**6.Pro tři čaroDějky** _sada určená třem ženám či dívkám pro svá kouzla a rituály_
+
+Obsah X 3 - bílá šalvěj svazek vykuřovací, náramek avanturín sluneční, přívěsek je červený jaspis, jasmínová sůl pro každou čarodámu, tři nádherné křištály, jejíchž krásu nelze tak hezky vyfotit, nesou vědomí tří bohyň, sdělím po zakoupení, tři rituální svíce a jedna společná pro váš krásný rituál
+
+**7.Dvojplamen** _pro muže a ženu._
+
+Obsahem této sady - pro každého náramek z křišťálu a černého obsidiánu - jin a jan vyvážení, špalíček Palo Santa, pro ženu přívěsek v podobě křišťálu a pro muže černý turmalín, společná velká sůl s růží a jasmínem, ručně dělané čokoládové mýdlo pro společnou koupel, bílá šalvěj jako vykuřovadlo pro očistu, dvě svíčky pro harmonizaci druhé čakry, dvě vonné kompozice , pro muže bílá , pro ženu olejová, dva nádherné krystaly, které mají oba dva na sobě další krystal - pro hlubší spojení partnerství, růženín pro společné vědomí vztahu
+
+8. **_Rituál pro 4 živly a čarodámu_**_, která již ví, co chce, magická sada pro sílu ženy, nové vědomí, nový vstup do svého pravého Já, na svou cestu._
 
 _V sadě je obsaženo žezlo z ametystu, sůl na očistu s jasmínem, šamanská šalvějová svíce s krystaly, šalvěj jako vykuřovadlo a náhrdelník temné noci, kyvadlo, 4 živlové karty a vůně , která nese vědomí bohyně Freyi._
 
@@ -17,33 +45,11 @@ _V sadě je obsaženo žezlo z ametystu, sůl na očistu s jasmínem, šamanská
 
 _Zasílám s ochrannými bylinami z lesa a z vlastní zahrádky_
 
-**_Cena : 2333,- Kč_**
-
-![](/uploads/prerodnicekkkk.jpg)
-
-**_Mistr přerodu a přechodový rituál_**_, pracuje se zde s třemi kartami, které nám dávají jasně najevo, že je čas skončit bolest, skončit jako role oběti a jít dál. Proto je v této sadě opravdu silný krystal křišťálu, šalvěj, šamanská svíce s myrtou a mnohé další, které Vám bude popsáno v dopise společně s vašim přenosným oltářkem_
-
-**_Cena 2333,-_**
-
-### **_Pro lesní vílu_**
-
-**_Cena 2444,-_**
-
-![](/uploads/lesana-kolaz22u.jpg)
-
-### **_Menarché sada_**
-
-_Pro vaší dceru_
-
-**_Cena 1666,-_**
-
-![](/uploads/prechodvoka2uup.jpg)
-
-#### **_Chystáme :_** 
+#### **_Chystáme :_**
 
 #### **_Podzimní rovnodennost - pouze TŘI sady_**
 
-#### **_Pro vědomý pár_**
+#### 
 
 #### 
 

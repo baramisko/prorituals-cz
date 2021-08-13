@@ -130,3 +130,5 @@ Fotografie jednotlivých minerálů, které jsou součástí sad, více fotek na
 ![](/uploads/img_0199.JPG)
 
 ![](/uploads/img_0202.JPG)
+
+![](/uploads/img_0195.JPG)

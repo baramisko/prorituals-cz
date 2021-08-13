@@ -100,3 +100,5 @@ Lze vybrat i z luxusní řady ro dámy či pány, co si potrpí na vzhled flakó
 **Drahé minerály** jsou pod dohledem dovozu EU, většina z nich pochází z mystických míst Brazílie, Peru, Balkánu.
 
 **_V případě zájmu o sestavení na míru , mne kontaktujte alespoň měsíc předem - svatba, předporodní rituál, narozeniny, odjezd na delší cestu, ženský kruh, mužský kruh..._**
+
+Fotografie jednotlivých minerálů :

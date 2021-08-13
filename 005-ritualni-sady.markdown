@@ -5,7 +5,7 @@ in_menu: true
 permalink: ritualni-sady.html
 
 ---
-**_Dostupné rituální sady:_**
+**_Dostupné rituální sady, detailní fotky dole na stránce :_**
 
 **_1.Přechodovka_** - 1888,-![](/uploads/prechodvoka2uup.jpg) _vhodná pro přechod z dívky k ženě ( první menstruace ), svatba, rozvod, přechod ženy ve vyzrálou ženu( menopauza), změna partnera, bydlení, příchod miminka..._
 

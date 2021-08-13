@@ -126,3 +126,5 @@ Fotografie jednotlivých minerálů, které jsou součástí sad, více fotek na
 **_roll on 10 ml je součástí rituální sady, ten menší je součástí sady dvojplamen duše, s rozprašovačem pouze na zadání :)_**
 
 ![](/uploads/img_0189.JPG)
+
+![](/uploads/img_0199.JPG)

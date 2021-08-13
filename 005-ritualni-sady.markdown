@@ -122,3 +122,5 @@ Fotografie jednotlivých minerálů, které jsou součástí sad, více fotek na
 **_Nabídka jednotlivých esencí a vonných kompozic:_**
 
 ![](/uploads/img_0188.JPG)
+
+**_roll on 10 ml je součástí rituální sady, ten menší je součástí sady dvojplamen duše, s rozprašovačem pouze na zadání :)_**

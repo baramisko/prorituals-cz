@@ -141,8 +141,8 @@ Fotografie jednotlivých minerálů, které jsou součástí sad, více fotek na
 
 ![](/uploads/img_0195.JPG)
 
-_Vonné kompozice lze objednat na míru i mimo sadu_
+**_Vonné kompozice lze objednat na míru i mimo sadu_**
 
-_10 ml roll on 465,- včetně poštovného_
+**_10 ml roll on 465,- včetně poštovného_**
 
-_nebo 50 ml rozprašovač 865,- včetně poštovného_
+**_nebo 50 ml rozprašovač 865,- včetně poštovného_**

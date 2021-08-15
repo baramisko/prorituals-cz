@@ -9,11 +9,17 @@ _V každém rituálu je obsažen odkaz na meditaci pro záměr duše a také dop
 
 **_Dostupné rituální sady, detailní fotky dole na stránce :_**
 
-**_1.Přechodovka_** **- 1888,-**![](/uploads/prechodvoka2uup.jpg) _vhodná pro přechod z dívky k ženě ( první menstruace ), svatba, rozvod, přechod ženy ve vyzrálou ženu( menopauza), změna partnera, bydlení, příchod miminka..._
+**_1.Přechodovka_** **- 1888,-**
+
+![](/uploads/img_0209.JPG) _vhodná pro přechod z dívky k ženě ( první menstruace ), svatba, rozvod, přechod ženy ve vyzrálou ženu( menopauza), změna partnera, bydlení, příchod miminka..._
 
 Obsah - Růženín, vonná kompozice 10ml, bílá šalvěj vykuřovadlo, růženín kyvadlo, přívěsek růženín, náramek ametyst, rituální svíce s šalvějí a jasmínová sůl.
 
-**_2.Vědomá žena 2333,-_** _- vhodná pro vědomé ženy, které mají obrovské změny ve svém životě, porod, početí, změna pozice v práci...jen tak pro vědomé ženy, při rozhodnutí jakémkoli_
+**_2.Vědomá žena 2333,-_** _-_
+
+![](/uploads/img_0205.JPG)
+
+ _vhodná pro vědomé ženy, které mají obrovské změny ve svém životě, porod, početí, změna pozice v práci...jen tak pro vědomé ženy, při rozhodnutí jakémkoli_
 
 ![](/uploads/img_0073.JPG)
 

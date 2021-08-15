@@ -21,8 +21,6 @@ Obsah - Růženín, vonná kompozice 10ml, bílá šalvěj vykuřovadlo, růžen
 
  _vhodná pro vědomé ženy, které mají obrovské změny ve svém životě, porod, početí, změna pozice v práci...jen tak pro vědomé ženy, při rozhodnutí jakémkoli_
 
-![](/uploads/img_0073.JPG)
-
 Obsah - Nádherný ametyst nabitý silou, přívěsek modrý avanturín, vonná kompozice - Vědomka -10ml, , bílá šalvěj vykuřovadlo, rituální svíce s levandulí, levandulová sůl, náramek čirý křišťál
 
 **_3.Muž ve své síle 2222,-_** _- muži, všechny rituály jsou vhodné pro vás, z chlapce do muže, pro otce a syna, i pro matku a sny, který nemá v svém životě otce a chcete mu dopřát jeho přechodový rituál v muže, muž který potřebuje získat svojí sílu, sebevědomí, lásku k sobě, k ženám, po rozvodu, po smrti ženy..._

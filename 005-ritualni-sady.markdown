@@ -39,6 +39,8 @@ Obsah - Velký křišťál s vědomím, které sděluji až po zakoupení, menš
 
 ![](/uploads/lesana-kolaz22u.jpg)
 
+![](/uploads/img_e0229.JPG)
+
 Obsah - nádherný lesní smaragd, přírodní,nese vědomí, které sděluji po zakoupení, přívěsek je rubín v zoistu, náramek sestaven z křišťálu, ametystu, fluoritu, vykuřovadlo velký svazek bílé šalvěje, špalíček Palo Santa, mátovo kopřivová sůl, vonná kompozice lesní ženy, rituální svíce s myrtou
 
 **6.Pro tři čaroDějky** 3333,- _sada určená třem ženám či dívkám pro svá kouzla a rituály_

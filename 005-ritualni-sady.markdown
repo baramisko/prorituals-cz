@@ -19,7 +19,7 @@ Obsah - Růženín, vonná kompozice 10ml, bílá šalvěj vykuřovadlo, růžen
 
 ![](/uploads/img_0205.JPG)
 
- _vhodná pro vědomé ženy, které mají obrovské změny ve svém životě, porod, početí, změna pozice v práci...jen tak pro vědomé ženy, při rozhodnutí jakémkoli_
+ _Vhodná pro vědomé ženy, které mají obrovské změny ve svém životě, porod, početí, změna pozice v práci...jen tak pro vědomé ženy, při rozhodnutí jakémkoli_
 
 Obsah - Nádherný ametyst nabitý silou, přívěsek modrý avanturín, vonná kompozice - Vědomka -10ml, , bílá šalvěj vykuřovadlo, rituální svíce s levandulí, levandulová sůl, náramek čirý křišťál
 

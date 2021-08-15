@@ -31,7 +31,7 @@ Obsah - Nabitý, silový kyanit, přívěsek černý turmalín, velké vykuřova
 
 **_4.Odloučení se, odpuštění, propuštění_** 2444,_- při rozloučení se s bytostí, která opustila náš svět - smrt, rozchod,rozvod, potrat..._
 
-![](/uploads/img_0094.JPG)
+![](/uploads/img_e0222.JPG)
 
 Obsah - Velký křišťál s vědomím, které sděluji až po zakoupení, menší křišťál, rovněž, Palo Santo a bílá šalvěj jako vykuřovadla, dva přívěsky - citrín a jaspis, dva surové růženíny, dva náramky - čirý křištál a ametyst, jasmínová sůl a vonná kompozice pro tuto sestavu,  šamanská svíce s myrtou nebo bude po dohodě s majitelem dodělána pro záměr
 

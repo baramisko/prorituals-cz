@@ -93,7 +93,7 @@ _Můžete se více dočíst i zde www.baranyja.eu ._
 
 **Krabička** je z borovicového dřeva se zámkem
 
-![](/uploads/img_0018.JPG)
+![](/uploads/img_0220.JPG)
 
 **Svíce** jsou ručně dělány ze sojového nebo palmového vosku z ekologického zemědělství, každá je originál , se záměrem pro rituál, některá obsahuje silice ,jiná i byliny. Pokud se stane že svíce vyteče, je to v pořádku, čistí prostor a majitele, dejte si pod ní rozhodně nehořlavý podtácek. Pokud se stane ,že nehoří a tzv. se knot dusí, je třeba se svíčkou pracovat tak, že jí uděláte prostor pro hoření a odlijete vrchní vosk, aby se rozhořel plamen.
 

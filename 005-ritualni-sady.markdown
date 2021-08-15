@@ -35,7 +35,7 @@ Obsah - Nabitý, silový kyanit, přívěsek černý turmalín, velké vykuřova
 
 Obsah - Velký křišťál s vědomím, které sděluji až po zakoupení, menší křišťál, rovněž, Palo Santo a bílá šalvěj jako vykuřovadla, dva přívěsky - citrín a jaspis, dva surové růženíny, dva náramky - čirý křištál a ametyst, jasmínová sůl a vonná kompozice pro tuto sestavu,  šamanská svíce s myrtou nebo bude po dohodě s majitelem dodělána pro záměr
 
-**5.Lesaně 2333,-** _vhodné jako dárek pro lesní žínku, která nutně nemusí bydlet v lese_
+**5.Lesaně k dispozici ve dvou verzí oboje 2333,-** _vhodné jako dárek pro lesní žínku, která nutně nemusí bydlet v lese_
 
 ![](/uploads/lesana-kolaz22u.jpg)
 

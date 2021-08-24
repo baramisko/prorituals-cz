@@ -19,7 +19,7 @@ Obsah - Růženín, vonná kompozice 10ml, bílá šalvěj vykuřovadlo, růžen
 
 ![](/uploads/img_0205.JPG)
 
- _Vhodná pro vědomé ženy, které mají obrovské změny ve svém životě, porod, početí, změna pozice v práci...jen tak pro vědomé ženy, při rozhodnutí jakémkoli_
+_Vhodná pro vědomé ženy, které mají obrovské změny ve svém životě, porod, početí, změna pozice v práci...jen tak pro vědomé ženy, při rozhodnutí jakémkoli_
 
 Obsah - Nádherný ametyst nabitý silou, přívěsek modrý avanturín, vonná kompozice - Vědomka -10ml, , bílá šalvěj vykuřovadlo, rituální svíce s levandulí, levandulová sůl, náramek čirý křišťál
 
@@ -29,7 +29,7 @@ Obsah - Nádherný ametyst nabitý silou, přívěsek modrý avanturín, vonná 
 
 Obsah - Nabitý, silový kyanit, přívěsek černý turmalín, velké vykuřovadlo bílá šalvěj, vonná kompozice sestavená mužem v síle pro muže, náramek černý obsidián, sůl s vůní a bylinami máty a vřesu a rituální svíce komunikační
 
-**_4.Odloučení se, odpuštění, propuštění_** 2444,_- při rozloučení se s bytostí, která opustila náš svět - smrt, rozchod,rozvod, potrat..._
+**_4.Odloučení se, odpuštění, propuštění_** 2444,_- při rozloučení se s bytostí, která opustila náš svět - smrt, rozchod,rozvod, potrat... VYPRODÁNO, na zakázku lze zpracovat na toto téma_
 
 ![](/uploads/img_e0222.JPG)
 

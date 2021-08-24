@@ -55,7 +55,7 @@ Obsahem této sady - pro každého náramek z křišťálu a černého obsidián
 
 ![](/uploads/dvojplamen-duse.jpg)
 
-1. **_Rituál pro 4 živly a čarodámu 2333,-_**_, která již ví, co chce, magická sada pro sílu ženy, nové vědomí, nový vstup do svého pravého Já, na svou cestu._
+1. **_Rituál pro 4 živly a čarodámu 2333,-_**_, která již ví, co chce, magická sada pro sílu ženy, nové vědomí, nový vstup do svého pravého Já, na svou cestu. VYPRODÁNO, lze zpracovat na zakázku_
 
 _V sadě je obsaženo žezlo z ametystu, sůl na očistu s jasmínem, šamanská šalvějová svíce s krystaly, šalvěj jako vykuřovadlo a náhrdelník temné noci, kyvadlo, 4 živlové karty a vůně , která nese vědomí bohyně Freyi._
 

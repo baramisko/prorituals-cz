@@ -139,4 +139,4 @@ Fotografie jednotlivých minerálů, které jsou součástí sad, více fotek na
 
 **_10 ml roll on 465,- včetně poštovného_**
 
-**_nebo 50 ml rozprašovač 865,- včetně poštovného_**
+**_nebo 50 ml rozprašovač 665,- včetně poštovného_**

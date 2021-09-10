@@ -5,6 +5,8 @@ in_menu: true
 permalink: ritualni-sady.html
 
 ---
+**_Na zakázku doba dodání cca 8- 14 dní, záloha je 50% ceny_**
+
 _V každém rituálu je obsažen odkaz na meditaci pro záměr duše a také dopis ,jak s meditací i sadou pracovat :) společně v tom, každý ve svém nitru_
 
 **_Dostupné rituální sady, detailní fotky dole na stránce :_**

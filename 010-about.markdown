@@ -15,7 +15,7 @@ _Jsem lektorka, učitelka a stálým žákem jógy, masérka, bylinářka, olej�
 
 _...a toto vše a mnohem více, jsem chtěla dát dohromady pro nás všechny..._
 
-_Jsem na Instagramu , můj profil od_kocici a rituální profil pro.rituals_
+_Jsem na Instagramu , můj profil pro.rituals_
 
 [https://www.youtube.com/watch?v=T5eMjjlgGVQ](https://www.youtube.com/watch?v=T5eMjjlgGVQ "https://www.youtube.com/watch?v=T5eMjjlgGVQ") o rituálech
 

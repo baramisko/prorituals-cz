@@ -57,14 +57,6 @@ Obsahem této sady - pro každého náramek z křišťálu a černého obsidián
 
 ![](/uploads/dvojplamen-duse.jpg)
 
-1. **_Rituál pro 4 živly a čarodámu 2333,-_**_, která již ví, co chce, magická sada pro sílu ženy, nové vědomí, nový vstup do svého pravého Já, na svou cestu. VYPRODÁNO, lze zpracovat na zakázku_
-
-_V sadě je obsaženo žezlo z ametystu, sůl na očistu s jasmínem, šamanská šalvějová svíce s krystaly, šalvěj jako vykuřovadlo a náhrdelník temné noci, kyvadlo, 4 živlové karty a vůně , která nese vědomí bohyně Freyi._
-
-![](/uploads/na-web-dve.jpg)
-
-![](/uploads/na-web.jpg)
-
 _Zasílám s ochrannými bylinami z lesa a z vlastní zahrádky_
 
 #### **_Chystáme :_**
@@ -97,7 +89,7 @@ _Můžete se více dočíst i zde www.baranyja.eu ._
 
 ![](/uploads/img_0220.JPG)
 
-**Svíce** jsou ručně dělány ze sojového nebo palmového vosku z ekologického zemědělství, každá je originál , se záměrem pro rituál, některá obsahuje silice ,jiná i byliny. Pokud se stane že svíce vyteče, je to v pořádku, čistí prostor a majitele, dejte si pod ní rozhodně nehořlavý podtácek. Pokud se stane ,že nehoří a tzv. se knot dusí, je třeba se svíčkou pracovat tak, že jí uděláte prostor pro hoření a odlijete vrchní vosk, aby se rozhořel plamen.
+**Svíce** jsou ručně dělány ze sojového nebo palmového vosku z ekologického zemědělství, každá je originál , se záměrem pro rituál, některá obsahuje silice ,jiná i byliny. Pokud se stane že svíce vyteče, je to v pořádku, čistí prostor a majitele, dejte si pod ní rozhodně nehořlavý podtácek. 
 
 ![](/uploads/img_0202.JPG)
 

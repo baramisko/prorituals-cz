@@ -9,7 +9,7 @@ permalink: ritualni-sady.html
 
 _V každém rituálu je obsažen odkaz na meditaci pro záměr duše a také dopis ,jak s meditací i sadou pracovat :) společně v tom, každý ve svém nitru_
 
-**_Dostupné rituální sady, detailní fotky dole na stránce :_**
+**_Dostupné rituální sady:_**
 
 **_1.Přechodovka_** **- 1888,-**
 

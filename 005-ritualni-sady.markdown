@@ -47,15 +47,19 @@ Obsah - Velký křišťál s vědomím, které sděluji až po zakoupení, menš
 
 ![](/uploads/img_e0229.JPG)
 
-Obsah - nádherný lesní smaragd, přírodní,nese vědomí, které sděluji po zakoupení, přívěsek je rubín v zoistu, náramek sestaven z křišťálu, ametystu, fluoritu, vykuřovadlo velký svazek bílé šalvěje, špalíček Palo Santa, mátovo kopřivová sůl, vonná kompozice lesní ženy, rituální svíce s myrtou
+Obsah - nádherný lesní smaragd, přírodní, nese vědomí, které sděluji po zakoupení, přívěsek je rubín v zoistu, náramek sestaven z křišťálu, ametystu, fluoritu, vykuřovadlo velký svazek bílé šalvěje, špalíček Palo Santa, mátovo kopřivová sůl, vonná kompozice lesní ženy, rituální svíce s myrtou
 
-**6.Pro tři čaroDějky** 3333,- _sada určená třem ženám či dívkám pro svá kouzla a rituály_
+**6.Pro tři čaroDějky** Lilith kompozice
+
+_sada určená třem ženám či dívkám pro svá kouzla a rituály_
 
 ![](/uploads/img_e0231.JPG)
 
-Obsah X 3 - bílá šalvěj svazek vykuřovací, náramek avanturín sluneční, přívěsek je červený jaspis, jasmínová sůl pro každou čarodámu, tři nádherné křištály, jejíchž krásu nelze tak hezky vyfotit, nesou vědomí tří bohyň, sdělím po zakoupení, tři rituální svíce a jedna společná pro váš krásný rituál
+Obsah X 3 - bílá šalvěj svazek vykuřovací, náramek avanturín sluneční, přívěsek je červený jaspis, jasmínová sůl pro každou čarodámu, tři nádherné křištály, jejíchž krásu nelze předa fotkou, nesou vědomí tří bohyň, sdělím po zakoupení, tři rituální svíce a jedna společná pro váš krásný rituál
 
-**7.Dvojplamen 2666,-** _pro muže a ženu._
+**7.Dvojplamen** 
+
+_pro muže a ženu._
 
 Obsahem této sady - pro každého náramek z křišťálu a černého obsidiánu - jin a jan vyvážení, špalíček Palo Santa, pro ženu přívěsek v podobě křišťálu a pro muže černý turmalín, společná velká sůl s růží a jasmínem, ručně dělané čokoládové mýdlo pro společnou koupel, bílá šalvěj jako vykuřovadlo pro očistu, dvě svíčky pro harmonizaci druhé čakry, dvě vonné kompozice , pro muže bílá , pro ženu olejová, dva nádherné krystaly, které mají oba dva na sobě další krystal - pro hlubší spojení partnerství, růženín pro společné vědomí vztahu
 

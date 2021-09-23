@@ -7,9 +7,11 @@ permalink: ritualni-sady.html
 ---
 **_Na zakázku doba dodání cca 8- 14 dní, záloha je 50% ceny_**
 
+Cena je v rozmezí 1200,- až 3500,- podle druhu, náročnosti parfému, dostupných bylin, krystalů...součástí je meditace a odkaz na ní napořád
+
 _V každém rituálu je obsažen odkaz na meditaci pro záměr duše a také dopis ,jak s meditací i sadou pracovat :) společně v tom, každý ve svém nitru_
 
-**_Ukázka rituálních sad_** 
+**_Ukázka rituálních sad_**
 
 **_1.Menarché_**
 
@@ -31,9 +33,9 @@ Obsah - Nádherný ametyst, přívěsek modrý avanturín, vonná kompozice - V�
 
 Obsah - Silový kyanit, přívěsek černý turmalín, velké vykuřovadlo bílá šalvěj, vonná kompozice sestavená mužem v síle pro muže, náramek černý obsidián, sůl s vůní a bylinami máty a vřesu a rituální svíce komunikační
 
-**_4.Odloučení se, odpuštění, propuštění_** 
+**_4.Odloučení se, odpuštění, propuštění_**
 
- _při rozloučení se s bytostí, která opustila náš svět - smrt, rozchod,rozvod, potrat.._ 
+_při rozloučení se s bytostí, která opustila náš svět - smrt, rozchod,rozvod, potrat.._
 
 ![](/uploads/img_e0222.JPG)
 
@@ -41,7 +43,7 @@ Obsah - Velký křišťál s vědomím, které sděluji až po zakoupení, menš
 
 **5.Lesaně**
 
- _vhodné jako dárek pro lesní žínku, která nutně nemusí bydlet v lese_
+_vhodné jako dárek pro lesní žínku, která nutně nemusí bydlet v lese_
 
 ![](/uploads/lesana-kolaz22u.jpg)
 
@@ -57,7 +59,7 @@ _sada určená třem ženám či dívkám pro svá kouzla a rituály_
 
 Obsah X 3 - bílá šalvěj svazek vykuřovací, náramek avanturín sluneční, přívěsek je červený jaspis, jasmínová sůl pro každou čarodámu, tři nádherné křištály, jejíchž krásu nelze předa fotkou, nesou vědomí tří bohyň, sdělím po zakoupení, tři rituální svíce a jedna společná pro váš krásný rituál
 
-**7.Dvojplamen** 
+**7.Dvojplamen**
 
 _pro muže a ženu._
 

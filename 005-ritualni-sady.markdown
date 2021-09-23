@@ -9,35 +9,39 @@ permalink: ritualni-sady.html
 
 _V každém rituálu je obsažen odkaz na meditaci pro záměr duše a také dopis ,jak s meditací i sadou pracovat :) společně v tom, každý ve svém nitru_
 
-**_Dostupné rituální sady:_**
+**_Ukázka rituálních sad_** 
 
-**_1.Přechodovka_** **- 1888,-**
+**_1.Menarché_**
 
 ![](/uploads/img_0209.JPG) _vhodná pro přechod z dívky k ženě ( první menstruace ), svatba, rozvod, přechod ženy ve vyzrálou ženu( menopauza), změna partnera, bydlení, příchod miminka..._
 
 Obsah - Růženín, vonná kompozice 10ml, bílá šalvěj vykuřovadlo, růženín kyvadlo, přívěsek růženín, náramek ametyst, rituální svíce s šalvějí a jasmínová sůl.
 
-**_2.Vědomá žena 2333,-_** _-_
+**_2.Vědomá žena_**
 
 ![](/uploads/img_0205.JPG)
 
 _Vhodná pro vědomé ženy, které mají obrovské změny ve svém životě, porod, početí, změna pozice v práci...jen tak pro vědomé ženy, při rozhodnutí jakémkoli_
 
-Obsah - Nádherný ametyst nabitý silou, přívěsek modrý avanturín, vonná kompozice - Vědomka -10ml, , bílá šalvěj vykuřovadlo, rituální svíce s levandulí, levandulová sůl, náramek čirý křišťál
+Obsah - Nádherný ametyst, přívěsek modrý avanturín, vonná kompozice - Vědomka -10ml, , bílá šalvěj vykuřovadlo, rituální svíce s levandulí, levandulová sůl, náramek čirý křišťál
 
-**_3.Muž ve své síle 2222,-_** _- muži, všechny rituály jsou vhodné pro vás, z chlapce do muže, pro otce a syna, i pro matku a sny, který nemá v svém životě otce a chcete mu dopřát jeho přechodový rituál v muže, muž který potřebuje získat svojí sílu, sebevědomí, lásku k sobě, k ženám, po rozvodu, po smrti ženy..._
+**_3.Muž ve své síle_** _- muži, všechny rituály jsou vhodné pro vás, z chlapce do muže, pro otce a syna, i pro matku a sny, který nemá v svém životě otce a chcete mu dopřát jeho přechodový rituál v muže, muž který potřebuje získat svojí sílu, sebevědomí, lásku k sobě, k ženám, po rozvodu, po smrti ženy..._
 
 ![](/uploads/img_0045.JPG)
 
-Obsah - Nabitý, silový kyanit, přívěsek černý turmalín, velké vykuřovadlo bílá šalvěj, vonná kompozice sestavená mužem v síle pro muže, náramek černý obsidián, sůl s vůní a bylinami máty a vřesu a rituální svíce komunikační
+Obsah - Silový kyanit, přívěsek černý turmalín, velké vykuřovadlo bílá šalvěj, vonná kompozice sestavená mužem v síle pro muže, náramek černý obsidián, sůl s vůní a bylinami máty a vřesu a rituální svíce komunikační
 
-**_4.Odloučení se, odpuštění, propuštění_** 2444,_- při rozloučení se s bytostí, která opustila náš svět - smrt, rozchod,rozvod, potrat... **VYPRODÁNO**, na zakázku lze zpracovat na toto téma_
+**_4.Odloučení se, odpuštění, propuštění_** 
+
+ _při rozloučení se s bytostí, která opustila náš svět - smrt, rozchod,rozvod, potrat.._ 
 
 ![](/uploads/img_e0222.JPG)
 
 Obsah - Velký křišťál s vědomím, které sděluji až po zakoupení, menší křišťál, rovněž, Palo Santo a bílá šalvěj jako vykuřovadla, dva přívěsky - citrín a jaspis, dva surové růženíny, dva náramky - čirý křištál a ametyst, jasmínová sůl a vonná kompozice pro tuto sestavu,  šamanská svíce s myrtou nebo bude po dohodě s majitelem dodělána pro záměr
 
-**5.Lesaně k dispozici ve dvou verzí oboje 2333,-** _vhodné jako dárek pro lesní žínku, která nutně nemusí bydlet v lese_
+**5.Lesaně**
+
+ _vhodné jako dárek pro lesní žínku, která nutně nemusí bydlet v lese_
 
 ![](/uploads/lesana-kolaz22u.jpg)
 
@@ -89,7 +93,7 @@ _Můžete se více dočíst i zde www.baranyja.eu ._
 
 ![](/uploads/img_0220.JPG)
 
-**Svíce** jsou ručně dělány ze sojového nebo palmového vosku z ekologického zemědělství, každá je originál , se záměrem pro rituál, některá obsahuje silice ,jiná i byliny. Pokud se stane že svíce vyteče, je to v pořádku, čistí prostor a majitele, dejte si pod ní rozhodně nehořlavý podtácek. 
+**Svíce** jsou ručně dělány ze sojového nebo palmového vosku z ekologického zemědělství, každá je originál , se záměrem pro rituál, některá obsahuje silice ,jiná i byliny. Pokud se stane že svíce vyteče, je to v pořádku, čistí prostor a majitele, dejte si pod ní rozhodně nehořlavý podtácek.
 
 ![](/uploads/img_0202.JPG)
 

@@ -67,21 +67,9 @@ Obsahem této sady - pro každého náramek z křišťálu a černého obsidián
 
 _Zasílám s ochrannými bylinami z lesa a z vlastní zahrádky_
 
-#### **_Chystáme :_**
-
-#### **_Podzimní rovnodennost - pouze TŘI sady_**
-
-#### 
-
-#### 
-
-#### 
-
 _Vše bude popsáno v dopise, který přijde zároveň se sadou, abyste si třeba i věděli rady či měli inspiraci_
 
 **_Vše co koupíte, můžete koupit někomu z lásky, kdo by ocenil a byl rád, za rituál, za nádhernou sadu, za pomoc na jeho cestě. Máte kamarádku, která si neví rady se vztahem? Nebo dva přátelé, které čeká svatba? Silnou ženu, která ztrácí půdu pod nohama? Pro ně jsou vhodné naše rituálky._**
-
-_Kupujete to , co je na obrázku vždy podle dané fotografie a obsahu. Záleží na roční době, situace na naší planetě a v zemi, podle dostupnosti minerálů a hlavně intuice :)_
 
 _Cena se liší podle hmotnosti a velikosti minerálu a jeho původu, podle náročnosti vonné kompozice._
 
@@ -111,7 +99,7 @@ Lze vybrat i z luxusní řady ro dámy či pány, co si potrpí na vzhled flakó
 
 **Drahé minerály** jsou pod dohledem dovozu EU, většina z nich pochází z mystických míst Brazílie, Peru, Balkánu.
 
-**_V případě zájmu o sestavení na míru , mne kontaktujte alespoň měsíc předem - svatba, předporodní rituál, narozeniny, odjezd na delší cestu, ženský kruh, mužský kruh..._**
+**_V případě zájmu o sestavení na míru , mne kontaktujte alespoň dva týdny předem - svatba, předporodní rituál, narozeniny, odjezd na delší cestu, ženský kruh, mužský kruh..._**
 
 Fotografie jednotlivých minerálů, které jsou součástí sad, více fotek na INSTAGRAMU pro.rituals
 

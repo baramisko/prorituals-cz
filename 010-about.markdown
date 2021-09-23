@@ -1,12 +1,14 @@
 ---
 layout: page
-title: O nás
+title: O nás a aktuality
 in_menu: true
 nav-include: true
 nav-order: "100"
 permalink: o-nas.html
 
 ---
+![](/uploads/ochrana-vlastniho-chramu-page0001-1.jpg)
+
 ![](/uploads/cemu-se-venuji-a-co-mohu-nabidnout-page0001.jpg)
 
 _Něco málo o mne_

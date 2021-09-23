@@ -123,8 +123,6 @@ Fotografie jednotlivých minerálů, které jsou součástí sad, více fotek na
 
 ![](/uploads/img_0188.JPG)
 
-**_roll on 10 ml je součástí rituální sady, ten menší je součástí sady dvojplamen duše, s rozprašovačem pouze na zadání :)_**
-
 ![](/uploads/img_0189.JPG)
 
 ![](/uploads/img_0199.JPG)
@@ -133,6 +131,6 @@ Fotografie jednotlivých minerálů, které jsou součástí sad, více fotek na
 
 **_Vonné kompozice lze objednat na míru i mimo sadu_**
 
-**_10 ml roll on 465,- včetně poštovného_**
+**_10 ml roll on 265,- včetně poštovného_**
 
-**_nebo 50 ml rozprašovač 665,- včetně poštovného_**
+**_nebo 50 ml rozprašovač 465,- včetně poštovného_**

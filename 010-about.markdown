@@ -7,6 +7,8 @@ nav-order: "100"
 permalink: o-nas.html
 
 ---
+![](/uploads/cemu-se-venuji-a-co-mohu-nabidnout-page0001.jpg)
+
 _Něco málo o mne_
 
 _Jmenuji se Bára, jsem šťastně vdaná za Tomáše , který má dvě dcery, žijeme v chaloupce v Beskydech na skoro samotě v lese u potoka, osvojily si nás tři kočky, spousta netopýrů, rostlin, víl a elfů :). Pracovala jsem v institucích se závislými lidmi, na základě svého vzdělání v oboru psychologie a terapie.... a stačilo._
@@ -32,31 +34,3 @@ Bára je citlivá, vysoce profesionální, na pochopení všeho má člověk dos
 Na jógu s Bárou jsem narazila čistě náhodou prostřednictvím sociálních sítí, skrze společné známé a mohu upřímně říct, že je to jedna z nejlepších náhod, jakou jsem si mohla přát. Již dříve jsem navštěvovala cvičební skupiny se zaměřením na zumbu, aerobik, pilates, ale nikdy jsem u ničeho nevydržela delší čas. Potýkala jsem se také s bolestí zad a zkrácenými svaly, spousta lidi mi doporučovala jógové cvičení, a proto když jsem viděla oznámení, že Bára začíná s lekcemi jógy ve Frenštátě, neváhala jsem a přihlásila se. Hned od počátku jsem byla velmi nadšená. Oceňovala jsem způsob vedení lekcí a neuvěřitelně přátelskou a příjemnou atmosféru ve skupině, kterou jsem ještě nikdy nikde nezažila. Nevím, jak bych tuto atmosféru blíže specifikovala, ale i přes to, že jsem v počátcích nikoho neznala, cítila jsem pocit sounáležitosti a otevřenosti, který mě nabíjel neskutečně pozitivní energií. Určitě je toto klima dáno i lektorem, který jógu vede a musím říct, že v tomhle je Bára naprosto skvělá. Vždy z lekcí odcházím s úsměvem a dobrým pocitem. Pokud tedy uvažujete o józe s Bárou, já za sebe lekce můžu jen a jen doporučit. Nejenže se krásně protáhnete a procvičíte, ale poznáte své tělo, naučíte se jej vnímat, naučíte se pracovat s dechem, relaxovat a v neposlední řadě poznáte velmi příjemný kolektiv. Mně dala jóga s Bárou opravdu hodně a jsem neskutečně ráda, že společně cvičíme již čtvrtým rokem 😊. Š.K.
 
 ,,Terapie pomáhá nejen mně, ale i dětem, které k Báře mají obrovskou důvěru, je jemná, citlivá, ale dokáže být velmi tvrdá a přísná tam, kde je třeba. Masáže jsou balzám, dotek je opravdu léčivý, má v sobě nějakou čarovnou esenci která nejde popsat, její vonné oleje jsou naprosto BOŽÍ !!!!,, E.V
-
-**_S láskou sestavené ..._**
-
-**_Obsahují bylinné kompozice, které jsme vybírali pečlivě, ekologické a ekonomické, vlastní výrobky nebo místní, i rodinné, tak aby byly co nejvíce Fair trade a podporovaly rozvoj našich lokalit a dodavatelů._**
-
-**_Vše je šetrné k pokožce, přírodě i k celému tělu._**
-
-**_Šperky jsou vibračně nalazeny přímo pro danou rituální sadu._**
-
-**_Kameny také, které pečlivě vybírám, aby nebyly překupovány z podvodných obchodů._**
-
-**_Přes objednání, dostanete odkaz na hlubinnou meditaci._**
-
-**_Pracuji hlavně s aromaterapií, která dokáže vstoupit do našich buněk skrze své vůně, nepřeplácávám vůně, ale věřím, že se rozvoní právě v té chvíli , kdy je třeba, po zkušenostech mých i mých přátel, kteří byli dobrovolní testeři._**
-
-**_Sady jsou k dispozici vždy po pár kusech, počet je vždy napsán u rituální sady._**
-
-**_Nejsem E-shop, proto je třeba napsat o rituální sadu, která Vás zaujala a zpětně dostanete informace o platbě a kam Vám můžeme Váš rituál poslat apod._**
-
-**_Pokud kupujete sadu jako dárek, obsah je vždy napsán i vlastnoručním dopisem uvnitř, takže majitel vždy bude vědět, co k němu připutovalo._**
-
-**_Vše co koupíte, můžete koupit někomu z lásky, kdo by ocenil a byl rád, za rituál, za nádhernou sadu, za pomoc na jeho cestě. Máte kamarádku, která si neví rady se vztahem? Nebo dva přátelé, které čeká svatba? Silnou ženu, která ztrácí půdu pod nohama? Pro ně jsou vhodné naše rituálky._**
-
-**_Kupujete to , co je na obrázku vždy podle dané fotografie a obsahu. Záleží na roční době, situace na naší planetě a v zemi, podle dostupnosti minerálů a hlavně intuice :)_**
-
-**_Cena se liší podle hmotnosti a velikosti minerálu a jeho původu, podle náročnosti vonné kompozice._**
-
-**_Příběhem k těmto rituálním sadám ,je dlouhá cesta mojí duši do zakotvení se toho, čemu opravdu rozumím, co funguje a já toto poslání mohu šířit dál._**

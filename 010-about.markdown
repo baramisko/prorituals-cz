@@ -7,6 +7,8 @@ nav-order: "100"
 permalink: o-nas.html
 
 ---
+_Již proběhlo:_
+
 ![](/uploads/ochrana-vlastniho-chramu-page0001-1.jpg)
 
 ![](/uploads/cemu-se-venuji-a-co-mohu-nabidnout-page0001.jpg)

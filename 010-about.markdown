@@ -7,6 +7,8 @@ nav-order: "100"
 permalink: o-nas.html
 
 ---
+22\.10. 16:30 navazující 
+
 _Již proběhlo:_
 
 ![](/uploads/ochrana-vlastniho-chramu-page0001-1.jpg)

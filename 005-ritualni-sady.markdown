@@ -5,7 +5,7 @@ in_menu: true
 permalink: ritualni-sady.html
 
 ---
-**_Na zakázku doba dodání cca 8- 14 dní, záloha je 50% ceny_**
+**_Na zakázku doba dodání cca 5 až 8 dní, záloha je 50% ceny_**
 
 Cena je v rozmezí 1200,- až 3500,- podle druhu, náročnosti parfému, dostupných bylin, krystalů...součástí je meditace a odkaz na ní napořád
 

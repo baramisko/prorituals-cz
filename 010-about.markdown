@@ -7,11 +7,6 @@ nav-order: "100"
 permalink: o-nas.html
 
 ---
-22\.10. 16:30 navazující 
-
-_Již proběhlo:_
-
-![](/uploads/ochrana-vlastniho-chramu-page0001-1.jpg)
 
 ![](/uploads/cemu-se-venuji-a-co-mohu-nabidnout-page0001.jpg)
 
@@ -23,9 +18,7 @@ _Jsem lektorka, učitelka a stálým žákem jógy, masérka, bylinářka, olej�
 
 _...a toto vše a mnohem více, jsem chtěla dát dohromady pro nás všechny..._
 
-_Jsem na Instagramu , můj profil pro.rituals_
-
-[https://www.youtube.com/watch?v=T5eMjjlgGVQ](https://www.youtube.com/watch?v=T5eMjjlgGVQ "https://www.youtube.com/watch?v=T5eMjjlgGVQ") o rituálech
+_Jsem na Instagramu , můj profil pro.zivot.carovny_
 
 ![](/uploads/img_20210429_151733-1.jpg)
 

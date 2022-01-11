@@ -5,7 +5,7 @@ in_menu: true
 permalink: kontakt.html
 
 ---
-_Kontakt na mne je bara.nyja@seznam.cz_
+_Kontakt na mne je akyja.nyja@seznam.cz_
 
 _nebo přes Instagram pro.zivot.carovny_
 
